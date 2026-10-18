@@ -1,0 +1,5 @@
+# Per-person Obsidian state: layout, open files, plugins' caches. The shared settings are `.obsidian/app.json`.
+.obsidian/*
+!.obsidian/app.json
+.trash/
+.DS_Store
