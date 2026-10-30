@@ -1,0 +1,83 @@
+---
+slug: holy-places-related-to-imam-e-zamana
+title: 'Holy Places related to Imam-e-Zamana (a.s)'
+description: 'Holy Places related to Imam-e-Zamana (a.s) Preface This topic – which is academic as well as historical – has a wide scope. Its importance and significance…'
+kind: article
+topic: gheybat
+tags:
+  - 'AL Mahd'
+  - 'AL Mahdi In Quran'
+  - 'Appearance of al-Qaim:'
+  - 'AWAITING FOR IMAM A.S.OR FOR SYMPTOMS AND SIGNS:'
+  - 'Few Signs Of The Arrival Of Imam Mehdi (as)'
+  - 'Holy Places'
+  - 'Holy Prophet'
+  - 'Imam-e-Zamana'
+  - 'SUPPLICATION RELATING TO IMAM MAHDI (a.s.)'
+  - 'the Companions of Imam Mahdi (a.t.f.s.)'
+  - 'the Descent of Janabe Isa (a.s.)'
+  - 'The False Claimants of Deputyship of Imam Mahdi (a.s.)'
+  - 'The Promised Mahdi (as)'
+date: '2015-01-15'
+updated: '2015-01-15'
+legacyId: 'wp-en-3598'
+legacyUrl: '/english/holy-places-related-to-imam-e-zamana-a-s/'
+review: true
+---
+
+Holy Places related to Imam-e-Zamana (a.s)\
+Preface
+
+This topic – which is academic as well as historical – has a wide scope. Its importance and significance not only invites a person to ponder on the places associated with Imam -e-Zamana (a.s.) but also illuminates the path of the ones who are in search of truth. It frees the person from the vicious web of evil propaganda and guides him to the path of truth. It gives him the courage to fight the evil forces and makes him steadfast on true path.
+
+Importance
+
+When Holy Prophet (s.a.w.a.) announced in the Sermon of Ghadeer that he (s.a.w.a.) would have 12 successors – the first of which is Imam Ali (a.s.) while the last is the one whose name is be his name, whose agnomen is his agnomen and he (a.s.) would fill the world with truth and justice – then this sermon was not only a proclamation of the mastership of Imam Ali (a.s.) but it was also an announcement of the supremacy, power and sovereignty of his (s.a.w.a) last successor. This proclamation shattered the ignoble & unholy plans of the conspirators to acquire power and authority. Hence, Saqeefa was the place where a malicious gathering took place and a strong effort was made to put a veil on the proclamation of Ghadeer. Since the last fourteen centuries, rulers have used all their might – in terms of power, money and authority – and have left no stone unturned to suppress the event of Ghadeer. Majority of (so called) scholars were their courtiers and in awe of the rulers. Thus, their loyalty was not to the religion but to the rulers. These scholars were successful in erasing the event of Ghadeer from the books of history. Else, how is it possible that majority of the Muslims could be unaware of a sermon and an event which was announced by the one who spoke only what was revealed to him, and which was witnessed by one lakh thirty thousand pilgrims? The holy places associated with Imam-e-Zamana (a.s.) preserved the lofty, holy, distinguished and divine event (of Ghadeer) in the annals of history and nullified all the efforts of the enemies of Allah in erasing it.
+
+Advantages
+
+After the demise of Holy Prophet (s.a.w.a), the way the first three caliphs – also called as “rightly guided” – ruled the Islamic empire, it allowed the age old customs and rituals to creep into Islam in the garb of religion. The influences and elements that were predominant among the pagan and polytheists Arabs (before the advent of Islam) once again raised their ugly heads. Only now they were given the tag of “Islam”. Thus, not only idolatry became common but the distinctions between permitted (halal) and prohibited (haram) too were erased. The Islamic environment and its teachings were further corrupted and ruined by Abu Sufyan and Muawiyah. Their frequent journeys from Damascus to Madina played no small role in tarnishing and jolting the foundations of Islam. Thus, when the Islamic empire came under the apparent caliphate of the fourth caliph – Imam Ali (a.s) – he had to face rebellion from all quarters which led to frequent wars. After his (a.s) caliphate, Islam was engulfed in a storm of calamities. The painful and agonising event of Karbala took place even while the sermon of Ghadeer was still echoing in the hearts of the people. After this heart-breaking event, the sons of Holy Prophet (s.a.w.a) – who were his (s.a.w.a.) rightful successors – chose to remain away from the people. But they were the symbols of piety, courage, worship, forbearance and etiquette. They always endeavoured to expose the malicious and un-Islamic propagandas of the rulers and highlighted the corrupt teachings that had become part of Islam. Due to their endless knowledge, they were able to put forth the true picture of Islam among the people and explained to them the religion that was brought by the Holy Prophet (s.a.w.a.). Thus, they laid the platform for the establishment of the original Islam of which they were the authentic heirs. They were always called as “sons of Holy Prophet (s.a.w.a)” right till the eleventh Imam – Imam Askari (a.s). The lives of all the eleven infallibles – till 260 AH – were filled with oppression and turmoil. History has recorded the smallest details. The sermon of Ghadeer had mentioned twelve successors. Thus as per witnesses and select followers, Imam Mahdi (a.s.) went into minor occultation (for 69 years) and then into major occultation. In this era of major occultation, the venerated places associated with Imam-e-Zamana (a.s) play a vital role. Millions of devotees visit them annually to obtain grace and blessings. The graves of Saamarra and all other places where Imam-e-Zamana (a.s) himself is a regular visitor, are regarded sacred and blessed for his (a.s.) followers. These holy places are the minarets that proclaim the Imamate of the final successor of Holy Prophet (s.a.w.a) viz. Imam Mahdi (a.s)
+
+Spirituality
+
+The places that are related with Imam (a.s) not only invite devotees towards them but they also provide solace and a ray of hope to the broken heart. Every pilgrim, every believer leaves his house for the sacred journey of visiting the places connected to Imam-e-Zamana (a.t.f.s) with hope and optimism.
+
+“Keep moving for you will meet him somewhere; if you stop, the earth will grip your feet”
+
+Now let us talk about these places after we have discussed their importance and significance. Every believer is restless and keen to visit those places again and again. His only wish is that his entire life should pass in visiting those places. Maybe in one of those journeys he may get a glimpse of the one for whom the heart yearns and he may see his (a.s) glorious visage.
+
+(1) Saamarraa
+
+Today, many people live away from their homes due to various reasons. But the love of their ancestors compels them to return to their native place. Imam-e-Zamana (a.s.) too visits his ancestral town and home in Saamarraa to visit the graves of his forefathers. Numerous incidents have been narrated regarding the presence of Imam (a.s.) in Saamarraa. Mirza Mohaddis-e-Noori in his book “Jannatul Mawa” gives reference of Maulana Zainul Abedeen, son of great scholar Mohammed Salmasi and narrates an incident of Allama Sayed Mohammed Mahdi Bahrul Uloom. Maulana Salmasi narrates – “We were reciting prayers in the precincts (Haram) of Askariyain (i.e. the mausoleum of Imam Hasan Askari (a.s.) and Imam Ali Naqi (a.s.)). He (Bahrul Uloom) wanted to rise for the third rakat after Tashhahud. Suddenly, he looked shaken and hesitated (for standing up). But soon he regained his composure and rose up slowly. After the prayers all of us were surprised at that momentary lapse of poise but none of us could gather the courage to ask him the reason behind it. Finally, we reached home and were about to eat, when one of the elders gestured to me to ask him (Bahrul Uloom) about his act during prayers. I replied that he was closer to the Allamah than me. I managed to get the attention of Allamah Bahrul Uloom who said “What are you two talking about?” I replied, “These people wanted to know the reason for your hesitation during the prayers today.” He revealed, “Today, while I was praying I saw Imam-e-Zamana (a.s.) entering the haram in order to do ziyaarat of his holy father (a.s.). I was overawed by his grandeur and splendour. This was the reason for my hesitation. Once he (a.s) left the Mausoleum I was at ease.”
+
+(2) Masjid-e-Sehlah
+
+Abu Bakr Hazrami narrates that I asked Holy Imam Ja’far –as- Sadiq (a.s.) (or Imam Mohammad-e-Baqir (a.s.)) “Which is the holiest place after the holy places of Ka’abah (Mecca) and the grave of Holy Prophet (s.a.w.a.)? Imam (a.s.) replied,
+
+“It is Kufa. There are graves of Prophets and vicegerents in this holy place. Also in this blessed place is Masjid-e-Sehlah. Allah has not sent any prophet except that he has recited prayers in this mosque. From this very place the justice of Allah will be manifested. The Qaem (a.t.f.s.) of Allah will establish his government over here. It is he who will fill the earth with justice.’’
+
+(Mustadrak al Wasael, v. 3, pg. 416)
+
+The author of Mafatih-ul-Jinan, the venerated “mohaddis”, Shaikh Abbas-e-Qummi (r.a.) – besides being a great Mujtahid was also an authority on traditions. He narrates from Imam Ja’far Sadiq (a.s.) about the greatness of the Holy Masjid-e-Sehlah. Imam tells Abu Baseer, “This is one of the places liked by Allah. No day or night passes except that angels descend on this holy masjid and worship in it. If I had been close to this place then I too would have prayed all my prayers only in this masjid.” Then he further added, “O Abu Mohammad! The distinctions of this masjid that have not been narrated surpass those which have been narrated. Abu Baseer asked, “May I be sacrificed on you! Will Hazrat-e-Qaem (a.s.) always be in this masjid? He replied, “Yes”
+
+(3) Karbala
+
+The respected scholar – Shaikh Ali Rashtee – who was the student of “supreme researcher” Shaikh Mutuza Ansaari (r.a.) – narrates an incident. He says, “I was returning to Najaf-e-Ashraf after performing the ziyaarat of Abu Abdillah Imam Husain (a.s). I was travelling in a boat in the Euphrates River. There were others too in that boat but they were busy joking and laughing. But one person from that group was restrained and serious. The others were making fun of him and harassing him but he remained silent. After we disembarked, I met him and inquired from him about the entire episode. He said, “All of them are my relatives and are Sunnis. My father too was a Sunni but my mother was a Shia. By the grace of Imam-e-Zamana (a.t.f.s), I am a Shia. My name is Yaqut and I trade in oil. Once I had travelled on the outskirts of Hillah (a city in southern Iraq) to buy oil from the Bedouins. We were returning to Hillah and stopped on the way to take some rest. Due to the tiredness of the journey, I went to sleep. When I woke up I found that I was alone. That area was known for its wild animals and I was alone over there. I was trembling with fear and tried to continue on my journey. Unfortunately I lost the way. I called out to my caliphs on whom I had unwavering faith. But it was of no help. Suddenly the words of my mother came to my mind. She had once said that we Shias have an Imam-e-Zamana (a.t.f.s) whose agnomen is “Abu Saaleh”. He always comes to the rescue of those who are in distress and never forsakes the weak and helpless. I vowed that if I call out his name and he comes to my rescue, then I will adopt the religion of my mother. So I said “Yaa Abaa Saleh Adrikni.” No sooner had I uttered these words, I saw a person wearing a green turban approaching me. He showed me the way and ordered me to accept and adopt the religion of my mother. He accompanied me to the outskirts of a village whose inhabitants were Shias. I asked him “O my Master! Will you not come with me in the village?” He (a.s) replied, “No. Like you there are thousands in other cities who are calling out to me for help and I have to reach to their aid too.” Saying this he disappeared. I narrated this episode to the famous scholar of Hillah – Syed Mahdi Qazvini. I asked him that if I want to meet Imam (a.s) once again then what should I do. He said “Go for the ziyaarat of Abu Abdillah(a.s.) in Karbala for forty Friday nights (Shab-e-Jumah).” I immediately started going for ziyaarat. On the fortieth Friday night, when I was nearing Karbala, I saw that there was intense scrutiny of all the pilgrims. Only those who had the relevant documents and ID proofs were being allowed inside the mausoleum. Unfortunately I had neither. At that very moment, my eyes fell on Imam-e-Zamana (a.t.f.s). He was in non-Arab attire wearing a white head-gear. Impulsively I called out to him for help. He (a.s) caught my hand and took me inside the haram without the sentries noticing either of us.
+
+(al-Najm al- Saqib, vol. 2, Chapter 7, pg. 719, Incident no 71; Behaar al-Anwaar, vol. 53, pp. 292 – 293)
+
+(4) Holy Ka’bah
+
+Numerous traditions narrate that Imam-e-Zamana (a.t.f.s) visits the Holy Ka’bah during Haj. The second special deputy – Janab Mohammed bin Usman Amri – says, “I have personally heard that ‘I swear by Allah! Saheb-ul-Amr comes to Mecca every year in the season of Haj. He sees the people and recognizes them while the people see him but don’t recognize him”
+
+(Kamaaluddin, vol. 2, Chapter 43, H. No. 8; Wasail al-Shiah, vol. 11, pg.135)
+
+Ali Ibn Ahmed Khadiji Kufi narrates from Azdee who said, “Once I was busy doing the tawaaf of the Ka’abah. I had completed six rounds and was about to start the seventh when my eyes fell on a handsome youth standing to the right of Ka’abah. A wonderful fragrance was emanating from him. He was surrounded by people wanting to talk to him. Everyone was in awe of him. I had never seen anyone talking more sweetly and pleasantly than him. I too was drawn towards him. I went near him so that I could converse with him. But the crowd pushed me back. I asked them “Who is this person?” They replied, “He is the son of Holy Prophet (s.a.w.a). He comes every year to meet and converse with the ‘special’ people (i.e. Shias). I called out loudly, “O my Master! I too want to come near you so that you can guide me to the right path.” Hearing this, the youth threw some pebbles towards me. I picked them up. People became curious and asked “What did that youth throw towards you?” I said “Pebbles.” But when I opened my hand, I saw that it was gold. I ran behind that youth till I caught up with him. Looking at me he said, “Now my argument is completed on you and the truth has become manifest to you. You have received insight in religion. Do you know who am I?” I said “No”. He replied, “I am Mahdi. I am Qaem. I am the one who will fill the earth with justice just as it was filled with oppression. The world can never remain void of a divine representative (Hujjat). This is a trust delivered to you. Proclaim it to your (religious) brothers”
+
+(Kamaaluddin, vol. 2, Chapter 43, H. No. 18; Behaar al-Anwaar, vol. 52, Chapter 18, H. No. 1)
+
+Conclusion
+
+Numerous lovers of Ahle Bait (a.s) have had the good fortune of meeting Imam-e-Zamana (a.t.f.s) in the mausoleum of Ameerul Momineen (a.s), in Kazmain and also in Jannatul Baqi. Their incidents are found in books. It is not possible to narrate all those incidents in this small article. But, as it was mentioned in the introduction of this article, that a person innately attaches himself to the one who brings him success and salvation. The aim of our lives is to obtain the pleasure of Imam-e-Zamana (a.t.f.s). He is the final representative of the Ahle Bait (a.s) and their ‘radiant lamp.’ This world exists only due to his grace and mercy. The doors of his kindness and benevolence are wide open for the believers. It is our responsibility that we make an all-out effort to obtain his mercy. Whenever we get an opportunity to visit these venerated places, we should bear in mind that our Imam (a.s) too frequents those places. If only, Yusuf-e-Zahra would purify our sinful eyes by giving us a glimpse of his radiant visage! If only he (a.s) would illuminate our gloomy hearts by his dazzling brilliance! May Allah give all of us the perception to feel his presence in all the places mentioned above! Is he a true devotee who does not yearn for his beloved? We say in Dua-e-Nudbah “It is difficult for me that I can see all the creatures but am deprived of your meeting.” This one statement beautifully sums up the sorrow within every follower of Imam-e-Zamana (a.t.f.s) due to his separation from his Imam (a.s). It also expresses his desire and yearning to meet Imam (a.s). May Allah hasten the reappearance of Imam-e-Zamana (a.t.f.s) and include us among his sincere servants.
+
+(Quotes: WWW.Al Muntazar.net)
