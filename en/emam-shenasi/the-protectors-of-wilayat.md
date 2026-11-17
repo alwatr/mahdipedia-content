@@ -71,7 +71,7 @@ Imam Jafar Sadiq (a.s.) said:
 
 ‘Indeed, whosoever from our Shias reaches this position; he is superior to the soldiers who are fighting the Romans and Turks by a million grades. This is because the scholars are protecting the religion of our friends whereas the soldiers are protecting the physical boundaries.’
 
-(Al-Ehtejaaj of Shaikh Tabarsi (r.a.), pg. 8 )
+(Al-Ehtejaaj of Shaikh Tabarsi (r.a.), pg. 8)
 
 The above tradition illustrates the position and worth of the scholars who are protecting the religion of the Shias and imparting religious teachings. They are protecting the weak friends of Ahle Bait (a.s.) from the objections and doubts of enemies.
 
@@ -87,7 +87,7 @@ Besides this Imam Mahdi (a.t.f.s) has pointed towards his special attention in h
 
 “Surely we are not negligent of your protection nor are we forgetful of your remembrance. If it was so, calamities would have surrounded you and enemies would have crushed you.”
 
-(Al-Ehtejaaj, vol. 2, pg. 323 )
+(Al-Ehtejaaj, vol. 2, pg. 323)
 
 It is due to the grace of Imam-e-Zamana (a.t.f.s.) that today Shias are protected from most of the calamities. However, whatever little calamities and difficulties we encounter have some divine wisdom behind it. One of the main reasons for these calamities is that due to them we are awake, alert and active. But for the calamities, we would have become negligent.
 
