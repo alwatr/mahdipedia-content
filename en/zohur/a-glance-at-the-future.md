@@ -123,7 +123,7 @@ This saying of the Holy Prophet (s.a.w.a.) proclaims the advent of a judicious a
 
 At another place the Holy Prophet (s.a.w.a.) addressed Hazrat Ali (a.s.) and said:
 
-اَلْاَئِمَّۃُ مِنْ بَعْدِیْ اِثْنٰی عَشَرَ اَوَّلُھُمْ اَنْتَ یَا عَلِیُّ! وَاٰخِرُھُمْ الْقَأئِمُ الَّذِیْ یَفْتَحُ اللّٰہُ عَزَّ وَجَلَّ عَلیٰ یَدَیْہِ مَشَارِقَ الْاَرْضِ وَمَغَارِبَھَا .
+اَلْاَئِمَّۃُ مِنْ بَعْدِیْ اِثْنٰی عَشَرَ اَوَّلُھُمْ اَنْتَ یَا عَلِیُّ! وَاٰخِرُھُمْ الْقَأئِمُ الَّذِیْ یَفْتَحُ اللّٰہُ عَزَّ وَجَلَّ عَلیٰ یَدَیْہِ مَشَارِقَ الْاَرْضِ وَمَغَارِبَھَا.
 
 “After me there will be twelve Imams. O Ali! You are the first among them, and last of them will be Al-Qaem (a.t.f.s.). Allah shall grant him victory over the east and the west”[^19]
 
