@@ -76,7 +76,7 @@ Subhanallah (Glory be to Allah)	33 times\
 Finally, prostrate and recite one hundred times:\
 “Allahumma salli ‘ala Muhammad wa aali Muhammad” (Oh Allah! bless Muhammad and his progeny).
 
-After prescribing the above acts of worship to Hasan b. Mathleh , Imam al-Mahdi [a] said: “O Hasan! Anyone who has offered these prayers in this Holy Mosque is tantamount to having offered prayers in the Holy Kaba.”
+After prescribing the above acts of worship to Hasan b. Mathleh, Imam al-Mahdi [a] said: “O Hasan! Anyone who has offered these prayers in this Holy Mosque is tantamount to having offered prayers in the Holy Kaba.”
 
 Hasan b. Mathleh says: “As soon as I started to convey this message and having taken only a few steps, again I was commanded by the Lord of the Age (Wali al-Asr [a]) as follows:
 
