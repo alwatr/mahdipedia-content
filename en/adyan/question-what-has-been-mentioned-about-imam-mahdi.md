@@ -1,6 +1,6 @@
 ---
 slug: question-what-has-been-mentioned-about-imam-mahdi
-title: 'Question :What has been mentioned about Imam Mahdi (a.t.f.s.) in the books of other religions?'
+title: 'Question:What has been mentioned about Imam Mahdi (a.t.f.s.) in the books of other religions?'
 description: 'What has been mentioned about Imam Mahdi (a.t.f.s.) in the books of other religions? Reply: An examination of the religious books of the different…'
 kind: article
 topic: adyan
