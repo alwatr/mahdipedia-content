@@ -53,7 +53,7 @@ X. Conclusion. When Abdul Mohsin completed the presentation, Abdullah bin Baaz p
 
 The excerpt is as follows:
 
-Hafiz Abul Hasan ibn Al-Husam Al-Abri (died 363 A.H.) writes in his book “Manaqib ush-Shaafi” :
+Hafiz Abul Hasan ibn Al-Husam Al-Abri (died 363 A.H.) writes in his book “Manaqib ush-Shaafi”:
 
 The traditions which are related from the Holy Prophet (s.a.w.a.) regarding Hazrat Imam Mahdi (a.s.) are Mutawatir (consecutively related) and are to be regarded favorably.
 
@@ -61,7 +61,7 @@ Hazrat Mahdi (a.s.) is from Ahle Bait (a.s.).
 
 Hafiz Muhammad Al-Bazranji (died 1103 A.H.) has written in the third chapter of his book “Al Ashaa-a-al-Ashraat- as-saa-a”: Reports in connection with Hazrat Mahdi (a.s.) are presented in various ways and are numerous. It is often reported in authentic traditions that he will be from the progeny of Janabe Fatema Zahra (s.a.). The reports are so many that there is no scope for rejection. Sheikh Muhammad al Safarini (died 1183 A.H.) writes in his book “Lawame al-Anwaar al Bahiya”: The reports about Hazrat Mahdi (a.s.) are so numerous that they reach the grade of ‘Mutawatir’ (widely related). They are so famous among the scholars of Ahle Sunnat that they are considered as their belief- on the basis of this the belief in the reappearance of Hazrat Imam Mahdi (a.s.) is necessary. This is what that is accepted by the men of letters (scholars) and it is the belief of Ahle Sunnat wal Jamaat.
 
-Qazi Muhammad bin All al-Shaukafi (died 1250 A.H.) states in his book titled “At-tawzeeh Fi Tawaatur Jame Fil Mahdi Al Muntazar Wai Dajjal Wai Masih” : The total number of traditions regarding Imam Mahdi (a.s.) that we have access to are fifty. Without any doubt these traditions are ‘Mutawatir’. The companions have also reported widely about Imam Mahdi (a.s.). There is no scope for interpretations on a subject so clear. Sheikh Siddiq Hasan Khan Kanauji (died 1307 A.H.) has mentioned in his book, “Al-lzaah he Maakaana wa Maayakoon Baine Yadaee As Saah.” The reports regarding Hazrat Imam Mahdi (a.s.) are so numerous that they attain the degree of ‘Mutawatir’. There is no doubt that Imam Mahdi (a.s.) will reappear in the Aakher az- amaan (the last period). However the year and the month is not prescribed. And none cares for those who reject this.
+Qazi Muhammad bin All al-Shaukafi (died 1250 A.H.) states in his book titled “At-tawzeeh Fi Tawaatur Jame Fil Mahdi Al Muntazar Wai Dajjal Wai Masih”: The total number of traditions regarding Imam Mahdi (a.s.) that we have access to are fifty. Without any doubt these traditions are ‘Mutawatir’. The companions have also reported widely about Imam Mahdi (a.s.). There is no scope for interpretations on a subject so clear. Sheikh Siddiq Hasan Khan Kanauji (died 1307 A.H.) has mentioned in his book, “Al-lzaah he Maakaana wa Maayakoon Baine Yadaee As Saah.” The reports regarding Hazrat Imam Mahdi (a.s.) are so numerous that they attain the degree of ‘Mutawatir’. There is no doubt that Imam Mahdi (a.s.) will reappear in the Aakher az- amaan (the last period). However the year and the month is not prescribed. And none cares for those who reject this.
 
 Sheikh Muhammad Bin Jafar al-Katam (died 1340 All.) has written in his book, “Nazmul Mutanaasir Minal Hadith al Mutawatir” Thus the traditions regarding the Awaited Mahdi are Mutawatir.
 
