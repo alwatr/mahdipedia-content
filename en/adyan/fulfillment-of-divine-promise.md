@@ -75,19 +75,19 @@ Allah too made a comprehensive arrangement for man’s guidance. Regarding the H
 
 “Say: O people! Surely I am the Apostle of Allah to you all”
 
-(Surah A’raaf : Verse 158)
+(Surah A’raaf: Verse 158)
 
 “This Qur’an has been revealed to me that with it I may warn you and whomsoever it reaches”
 
-(Surah An’aam : Verse 19)
+(Surah An’aam: Verse 19)
 
 “And We have not sent you but as a mercy to the worlds”
 
-(Surah Anbiya : Verse 107)
+(Surah Anbiya: Verse 107)
 
 “He it is Who sent His Apostle with guidance and the religion of truth, that He might cause it to prevail over all religions, though the polytheists may be averse.”
 
-(Surah Taubah : Verse 33)
+(Surah Taubah: Verse 33)
 
 Likewise, there are many more verses. Hence, while Satan wishes to deviate one and all, Allah desires to establish the pre-eminence of the religion of Islam throughout the world. The difference is that Satan is using legitimate & illegitimate means to achieve his aim. Killing, plundering, falsehood, accusations, and slander -he is indeed capable of anything. The Divine representatives, on the other hand, do not trespass the boundaries of the shariah for achieving their divine goals. They are steadfastly attached to the divine commandments for attaining their objectives. They always maintain the highest standards of morals and ethics in all their dealings.
 
@@ -97,7 +97,7 @@ Another evident and manifest difference between the divine representatives and t
 
 “And the final end is for the pious”
 
-(Surah A’raaf : Verse 128)
+(Surah A’raaf: Verse 128)
 
 Thus, finally success will be for those who are pious and virtuous. The outcome of the age old battle of guidance and deviation will result in the evident victory of guidance.
 
