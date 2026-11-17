@@ -92,7 +92,7 @@ Let us assume that such an event takes place in this nation. What would be your 
 Shaikh Murtaza Ansari (r.a.) replied: My opinion (Fatwa) is that the lady should undergo Iddah-e-Talaaq (Iddah of Divorce) if her husband is transformed into a living being because he is still alive, after which she can remarry. However if her husband is transformed into a non-living thing then she must undergo Iddah-e-Wafaat (Iddah of death) after which she is free to remarry.
 
 The person said the following sentence thrice:\
-You are a Mujtahid .. You are a Mujtahid.. You are a Mujtahid.
+You are a Mujtahid.. You are a Mujtahid.. You are a Mujtahid.
 
 Saying this the person left the place. Shaikh Murtaza Ansari (r.a.) knew that the person was none other than Imam-e-Asr (a.t.f.s.) who had granted him the permission to be a Jurisprudent. He immediately sent his students in search of that person. The students tried to find him but in vain. After this event Shaikh Murtaza Ansari (r.a.) accepted to be a jurist so that people can follow him.
 
