@@ -27,9 +27,9 @@ This supplication begins thus
 
 اَللَّهُمَّ ٱرْزُقْنَا تَوْفِيقَ ٱلطَّاعَةِ
 
-It has been recorded by the eminent traditionalist, Shaykh Abbas Qummi (r.a.), in his renowned compilation, ‘Mafatihul Jinaan’. He has reported this invocation on the authority of Shaykh Kafami from the latter’s ‘Misbahul Mutahajjid’. It is recommended that this supplication be recited after every obligatory namaaz or for that matter at any other time. (This supplication is mentioned in ‘Mafatihul Jinaan’ before the fifteen supplications of Imam Sajjad (a.s. )). Considering the veracity of this supplication, and with an eye on brevity, we have not mentioned the chain of transmitters.
+It has been recorded by the eminent traditionalist, Shaykh Abbas Qummi (r.a.), in his renowned compilation, ‘Mafatihul Jinaan’. He has reported this invocation on the authority of Shaykh Kafami from the latter’s ‘Misbahul Mutahajjid’. It is recommended that this supplication be recited after every obligatory namaaz or for that matter at any other time. (This supplication is mentioned in ‘Mafatihul Jinaan’ before the fifteen supplications of Imam Sajjad (a.s.)). Considering the veracity of this supplication, and with an eye on brevity, we have not mentioned the chain of transmitters.
 
-It has been recorded by the eminent traditionalist, Shaykh Abbas Qummi (r.a.), in his renowned compilation, ‘Mafatihul Jinaan’. He has reported this invocation on the authority of Shaykh Kafami from the latter’s ‘Misbahul Mutahajjid’. It is recommended that this supplication be recited after every obligatory namaaz or for that matter at any other time. (This supplication is mentioned in ‘Mafatihul Jinaan’ before the fifteen supplications of Imam Sajjad (a.s. )). Considering the veracity of this supplication, and with an eye on brevity, we have not mentioned the chain of transmitters.
+It has been recorded by the eminent traditionalist, Shaykh Abbas Qummi (r.a.), in his renowned compilation, ‘Mafatihul Jinaan’. He has reported this invocation on the authority of Shaykh Kafami from the latter’s ‘Misbahul Mutahajjid’. It is recommended that this supplication be recited after every obligatory namaaz or for that matter at any other time. (This supplication is mentioned in ‘Mafatihul Jinaan’ before the fifteen supplications of Imam Sajjad (a.s.)). Considering the veracity of this supplication, and with an eye on brevity, we have not mentioned the chain of transmitters.
 
 اَللَّهُمَّ ٱرْزُقْنَا تَوْفِيقَ ٱلطَّاعَةِ
 
@@ -189,7 +189,7 @@ Tyranny and injustice are among the major sins. Allah does not guide the tyrant,
 
 “And certainly We did destroy generations before you when they were unjust.”
 
-(Yunus : 13)
+(Yunus: 13)
 
 Injustice can be broadly divided under three categories.
 
@@ -207,7 +207,7 @@ One who does injustice or commits theft will find himself in a very wretched sta
 
 “And the day when the unjust one shall bite his hands, saying: O! Would that I had taken a way with the Apostle.”
 
-(Furqan : 27)
+(Furqan: 27)
 
 وَٱغْضُضْ اَبْصَارَنَا عَنِ ٱلْفُجُورِ وَٱلْخِيَانَةِ
 
@@ -233,7 +233,7 @@ All talks that do not involve some discussion about Allah or His Prophet (s.a.w.
 
 “Not let some of you backbite others. Does one of you like to eat the flesh of his dead brother?”
 
-(Hujrat : 12)
+(Hujrat: 12)
 
 Thus as per the Quran, backbiting of a believer is tantamount to eating the dead brother’s flesh. Not only is speaking evil of a believer prohibited, but even lending one’s ears to the slanderous talks of the backbiter is forbidden. If it is possible for us, then we should immediately refrain the person from going on any further, and remind him of Allah’s displeasure in this regard.
 
