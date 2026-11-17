@@ -65,7 +65,7 @@ near relatives’
 
 (Surah Shura, Verse 23)
 
-Then those who understood the underlying message behind this Quranic verse acted upon it. There were others who ignored this command. But the true lovers did not let anything come in between their love and attachment for the Ahle Bait (a.s.). One such group of lovers were in Karbala . They were so intense in their attachment, that Imam Husain (a.s.) proclaimed, ‘I have got companions that neither my grandfather (s.a.w.a.), nor my father (a.s.) nor my brother (a.s.) could get.’
+Then those who understood the underlying message behind this Quranic verse acted upon it. There were others who ignored this command. But the true lovers did not let anything come in between their love and attachment for the Ahle Bait (a.s.). One such group of lovers were in Karbala. They were so intense in their attachment, that Imam Husain (a.s.) proclaimed, ‘I have got companions that neither my grandfather (s.a.w.a.), nor my father (a.s.) nor my brother (a.s.) could get.’
 
 These were the companions who repaid the Holy Prophet (s.a.w.a.) for his efforts towards Islam, by attaching themselves to his progeny. They acted on this Quranic verse ‘those who believe are stronger in love for Allah’
 
