@@ -47,9 +47,9 @@ The Modern History of Kufah / Volume One and Two / Authored by Kamil Salman Al-J
 
 Merit of Kufah and Merit of its People /Authored by Abi Abdullah Muhammed Al-Hasani Al-Kufi / Ahlulbait Islamic Foundation / Beirut.
 
-THE LOCATION OF THE CITY :
+THE LOCATION OF THE CITY:
 
-The city locates at the right shore of the middle river of Furat ( An Old Indian River) which situates at eastern part of Najaf with almost 10 kilometers, it is far from the western part of Baghdad with 156 kilometers.
+The city locates at the right shore of the middle river of Furat (An Old Indian River) which situates at eastern part of Najaf with almost 10 kilometers, it is far from the western part of Baghdad with 156 kilometers.
 
 The city is high upon the sea level with almost 22 meters. It has a border from north side with Al-Kifl region (Babul Province), from the eastern part with As-Siniya and As-Salahiyah region (Ad-Diwaniyah Province), from the western part with Kariyi Sa’ad, from the south with constituency of Abi Sukhair and Al-Hira province.
 
@@ -59,7 +59,7 @@ Kufah was found in order to be immigration house and Moslems capital town instea
 
 THE CONSTRUCTION AND EXPANSION:
 
-After five years of founding of Kufah during the time of Al-Mughirah bun Su’bah (he who died in year 50 A.H.) walls of the houses were built with bricks. Likewise at the time of Ziyad bun Abih (who also died in year 53 A.H.) the city was built by baked bricks and the first thing to be build was doors of the houses, and the first house to be build was at the street of Kendah ( Al-Mutanbi’s area) – The first thing which was planned by Abul Hayaj Al-Asadi in Kufah was to build a mosque in the middle of the city which will be 1,5 kilometers far from the river Furat. He then dug ditch for the city as well as built a quality marble of Chosroes in front of the city which is brought from Al-Hirah. This place was wide for four thousand people, then Ibn Ziyad increased it to the extend that it can contains for twenty thousand people.
+After five years of founding of Kufah during the time of Al-Mughirah bun Su’bah (he who died in year 50 A.H.) walls of the houses were built with bricks. Likewise at the time of Ziyad bun Abih (who also died in year 53 A.H.) the city was built by baked bricks and the first thing to be build was doors of the houses, and the first house to be build was at the street of Kendah (Al-Mutanbi’s area) – The first thing which was planned by Abul Hayaj Al-Asadi in Kufah was to build a mosque in the middle of the city which will be 1,5 kilometers far from the river Furat. He then dug ditch for the city as well as built a quality marble of Chosroes in front of the city which is brought from Al-Hirah. This place was wide for four thousand people, then Ibn Ziyad increased it to the extend that it can contains for twenty thousand people.
 
 Imam Ali (peace be upon) honored the city when he arrived in it in Rajab year 36 A.H. Then he changed the divisions of the tribes of Kufah and did some movings between the tribes and dug a well in the city which there is no delicious water like it.
 
@@ -73,7 +73,7 @@ Ziyad bun Abih (who died in year 53 A.H) set up a bridge for preventing a flood 
 
 – In year 314 A.H. The city reached to the highest level of construction and buildings during the time of Al-Mutanabi (between year 353 – 354 A.H).
 
-– In year 676 A.H. Ata’a Al-Malik Al-Jawini ( author of Diwanul Dawlatul Ilkhaniyah ) dug a river which extended to Najaf and connected water to the mosque of Kufah. This river was named as (At-Tajiya river) ascribed to the in charge of digging it who is Sayyid Tajudeen Ali bun Amirudeen one of the great figures of that time.
+– In year 676 A.H. Ata’a Al-Malik Al-Jawini (author of Diwanul Dawlatul Ilkhaniyah) dug a river which extended to Najaf and connected water to the mosque of Kufah. This river was named as (At-Tajiya river) ascribed to the in charge of digging it who is Sayyid Tajudeen Ali bun Amirudeen one of the great figures of that time.
 
 – In year 943 A.H. The first Shah Al-Tahmasab Al-Safawi commanded that, a river should be dug from the Furat to Kufah, this river is known as Tahmasiyah as a branch was made for the river to (Al-Tahmaziya)as well. In year 1032 A.H. Shah Ismail Al-Awwal commanded that this river should be cleaned which overflowed when Rome surrounded Najaf. Verily, the river is known as river Shah or (Al-Kiryah).
 
@@ -91,9 +91,9 @@ The electricity wires were extended from Hilla to Kufah in year 1323 A.H.
 
 – Railway was also extended between Kufah and Najaf in year 1327 A.H.
 
-THE FEATURES :
+THE FEATURES:
 
-Kufah was a big city in which its villages and cemeteries are connected to Al-Furat as well as Al-Azar villages.the city contains 50 thousand houses for the Arabs, and 24 thousand for non Arabs. The city’s distance is 510 kilometers square today. The city enjoys the important strategic place from all parts. It is a connecting point between Al-Furat towns which are irrigates long distances, wide provinces with its delicious water. It is also a street break through a land which is thick of flowers surrounded by trees myrtle etc. So when Kufah became city and it was divide into parts and provinces, then railway, streets, castles were built in that city. Then it became center of literatures, sciences and culture. Among its old areas are : Ath-Thawiyah, Al-Jabanah, Khaaniqin, Darul Hakim, Dar Qumam Duran, Raha Imarah, Rahbatu Khanis, Rassafatul Kufah, Zurarah, Sahraa Al-Bardakht Al-Kannasat, Abs, Ar’zam, Allisan, (this named was giving to hind part of Kufah), Al-Sabi’i area and Shaitan area.
+Kufah was a big city in which its villages and cemeteries are connected to Al-Furat as well as Al-Azar villages.the city contains 50 thousand houses for the Arabs, and 24 thousand for non Arabs. The city’s distance is 510 kilometers square today. The city enjoys the important strategic place from all parts. It is a connecting point between Al-Furat towns which are irrigates long distances, wide provinces with its delicious water. It is also a street break through a land which is thick of flowers surrounded by trees myrtle etc. So when Kufah became city and it was divide into parts and provinces, then railway, streets, castles were built in that city. Then it became center of literatures, sciences and culture. Among its old areas are: Ath-Thawiyah, Al-Jabanah, Khaaniqin, Darul Hakim, Dar Qumam Duran, Raha Imarah, Rahbatu Khanis, Rassafatul Kufah, Zurarah, Sahraa Al-Bardakht Al-Kannasat, Abs, Ar’zam, Allisan, (this named was giving to hind part of Kufah), Al-Sabi’i area and Shaitan area.
 
 THE MARKETS OF KUFAH:
 
@@ -103,7 +103,7 @@ AMONG THE OLD VILLAGES OF THE CITY:
 
 The villages of the city are Istinyaa, Iqsas, Habaniya, Al-Hasasah, Al-Akirah Sini’ah, Al-Sawariya, Aqr Babul, Al-Ghaadhiriya, Banqiya, Al-Radah, Barithatu Al-Buwaib, Jir’ah, Jarir, Harura, Hidru Al-Sabee’i, Hammam Sa’ad, Hammam A’ayun, Al-Khurnaq, Darta, Zureh, Zaidan, Shaniya, Shumiya, Shili, Sahra’a, Ummu Salamah, Sarifain, Al-Sin, Aynu Jamal, Al-Gharyan.
 
-Some of the modern areas: New areas of the city are Mahalltu Al-Sarayi, Al-Rashadiya, Al-Jadidah, Al-Suhailiya, Al-Buhdari ( which locates at the second side of the river), Al-Burakiya, Mahallatu Kandah, there are other many new regions as well.
+Some of the modern areas: New areas of the city are Mahalltu Al-Sarayi, Al-Rashadiya, Al-Jadidah, Al-Suhailiya, Al-Buhdari (which locates at the second side of the river), Al-Burakiya, Mahallatu Kandah, there are other many new regions as well.
 
 SOME OF THE NEW VILLAGES:
 
@@ -131,7 +131,7 @@ This mosque situates at northwestern side of the Kufah’s mosque, with two kilo
 
 – Imam Ali’s house (peace be upon him): His house situates on a high land adjacent to the fences of western Emirate house,
 
-– Zaid bun Suhan’s mosque (Imam Ali’s companion (peace be upon him), this mosques situates at west part of Al-Sahlah mosque. .
+– Zaid bun Suhan’s mosque (Imam Ali’s companion (peace be upon him), this mosques situates at west part of Al-Sahlah mosque..
 
 – Tomb of both Muslim bun Aqil and Hani bun Ur’wah (peace be upon both of them): Their toms are situated at eastern side of central mosque of Kufah and in form of adjacent to it.
 
@@ -187,7 +187,7 @@ Likewise an incident of Ibn Al-Ash’ath, incident of Qanbar the servant of Imam
 
 Kufah start to lose its importance and position as a public Emirate center after it was established in year 145 A.H., but it remains in a short period as a soldiers and cultural center.
 
-The Carmathians occupied Kufah and played in it. in year 312 A.H. They also transmitted The Black Stone (Al-Hajarul Aswad) from Mecca to the city and fixed it on the Site (maqaam) of Ibrahim (peace be upon him ) in year 317 A.H. and then called people to do their pilgrimage in the mosque of Kufah instead of Mecca.
+The Carmathians occupied Kufah and played in it. in year 312 A.H. They also transmitted The Black Stone (Al-Hajarul Aswad) from Mecca to the city and fixed it on the Site (maqaam) of Ibrahim (peace be upon him) in year 317 A.H. and then called people to do their pilgrimage in the mosque of Kufah instead of Mecca.
 
 Kufah regained its position from Buwainins in year 334 A.H. those were concern about the city and sacred city of Najaf as well as the holy Alawids tomb sanctuary.
 
@@ -203,7 +203,7 @@ Travellers of Ibn Batutah also visited Kufah in year 726 A.H., while the biggest
 
 – A battle of Kufah occurred between people of the city and Bani Hasan in year 1335 A.H.
 
-The people of Najaf revolted against British in year 1917 A.D., and before then Kufah was center of gathering and negotiation between people of Najaf and British, whereas the religious authority Sayyid Mohammed Kazim Al-Yazdi was inhabiting in the city. And in the same year British vanguard arrived in Kufah and camped in a place called ( Shari’atu Al-Tabn), a place which is one of the Furat’s ways in Kufah.
+The people of Najaf revolted against British in year 1917 A.D., and before then Kufah was center of gathering and negotiation between people of Najaf and British, whereas the religious authority Sayyid Mohammed Kazim Al-Yazdi was inhabiting in the city. And in the same year British vanguard arrived in Kufah and camped in a place called (Shari’atu Al-Tabn), a place which is one of the Furat’s ways in Kufah.
 
 The plans of the twentieth revolution came to an end in the city in year 1920 A.D. in which a war steamer sunk (fire fly) by the revolters and then British also bombed mosque of Kufah.
 
