@@ -41,7 +41,7 @@ In this regard Hazrat Mahdi (A.S.) says:
 
 Imam al Kazim (A.S.) said,
 
-“My son ! when the fifth descendant of the seventh of the Imams is not visible to you ! It is when Allah will test your belief. Ghaibat is inevitable for the Master of this affair. Till the time when the religion is completely transformed, and only a few people will have belief in him. My son ! That Ghaibat, It is a
+“My son! when the fifth descendant of the seventh of the Imams is not visible to you! It is when Allah will test your belief. Ghaibat is inevitable for the Master of this affair. Till the time when the religion is completely transformed, and only a few people will have belief in him. My son! That Ghaibat, It is a
 
 trial through which Allah, the Almighty tests His servants.”
 
