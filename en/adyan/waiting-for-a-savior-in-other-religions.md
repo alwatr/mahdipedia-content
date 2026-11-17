@@ -25,7 +25,7 @@ In many religions there is an expectation for a savior to come and help the rele
 
 In addition to the Muslims especially the Shia, followers of other religions like Jews, Christians, Zoroastrians, and Hindus expect someone to come and bring peace and justice to the world. In the book “Dead” which is a divine book for Hindus, it is written: “In the end of the world, after corruption of the world, a leader will appear who is called Mansoor. He will master all the world, he will know everyone whether a believer or an unbeliever, and whatever he asks, God will offer him”. (Beshatrat Ahdin, p.245).
 
-In addition, in the book “Yamaseb” by Zoroaster’s student it is written: “From Arabs ground , Hashim’s sons, a man with a big head, big body and big feet comes out, and continues his grandfather’s religion with a large army, goes to Iran and constructs the earth and fills the earth with justice”. (Beshatrat Ahdin, p.258).
+In addition, in the book “Yamaseb” by Zoroaster’s student it is written: “From Arabs ground, Hashim’s sons, a man with a big head, big body and big feet comes out, and continues his grandfather’s religion with a large army, goes to Iran and constructs the earth and fills the earth with justice”. (Beshatrat Ahdin, p.258).
 
 And in the Old Testament the book of Genesis 18:20 “And as for Ishmael, I have heard thee; Behold, I have blessed him and will make him fruitful and I will multiply him exceedingly, Twelve Princes shall he beget and I will make him a great nation”
 
@@ -55,13 +55,13 @@ The above two verses are examples to prove that at last, persons with great meri
 
 There will come a day in which no cruelty, no injustice, no hostility, no killing, no oppression, no lies, and no corruption will exist in the world. It means that after a period of corruption and ignorance finally the world will be filled with equity and justice. And the reason for not collapsing or destroying the world in future is the expectance of The Mahdi (as) in coming and making man to live a happy life. A period in which only peace, humanity and morality will govern the world.
 
-The Prophet of Islam (SAW) calls that day, the day of light and human dignity.He said :
+The Prophet of Islam (SAW) calls that day, the day of light and human dignity.He said:
 
 “ Hazrat Al Mahdi (as) will come in a situation that diversity and degradation among the people is so high that the world will be ruined. He will come and preserve humanity from damage and corruption. Then God will enrich peoples hearts with faith and love”
 
 So Al Mahdi (as) is not a thought of mere sitting and waiting, not a future telling, but he is a true reality, a special personality who himself expects his appearance. He lives among the people, watches us and we watch for him, he is with our sufferings and desires, and he shares our happiness and our oppressions. His divine life is planned this way, not to make himself appear and wait with other people for the promised time.
 
-Therefore, expectation for the factual savior of the world does not mean to sit silent. Especially in the case of obligations of the religion, i.e, “Jehad” – Holy War in order to set God’s laws we cannot deprive ourselves from the responsibilities , anyway the Muslim’s job is to distinguish the right path from the wrong, especially in calling the people to:
+Therefore, expectation for the factual savior of the world does not mean to sit silent. Especially in the case of obligations of the religion, i.e, “Jehad” – Holy War in order to set God’s laws we cannot deprive ourselves from the responsibilities, anyway the Muslim’s job is to distinguish the right path from the wrong, especially in calling the people to:
 
 “Enjoining the good deeds and prohibiting the evil”.
 
@@ -69,7 +69,7 @@ Just as the Sun hidden behind the clouds provides us with light and warmth……
 
 Imam Mahdi provides us with guidance even though he is in Ghaybat, (hiding)…..
 
-Expectation does not deprive man from any of his responsibilities and does not delay any of his actions , as it is mentioned in the following narration:
+Expectation does not deprive man from any of his responsibilities and does not delay any of his actions, as it is mentioned in the following narration:
 
 “The best action is expectation for relief and appearance which is a very preferable virtue and is resulted from high and good faith”
 
