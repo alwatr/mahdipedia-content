@@ -74,7 +74,7 @@ The real cause of occultation will be disclosed only after the reappearance. Dur
 
 THE FEAR OF GETTING KILLED
 
-In several traditions one of the causes of occultation as explained by various Imams (A. S.) is the fear of getting killed. If Imam Mahdi (A. S.) would have appeared in such circumstances, there was every possibility of his assassination. Since he is the final sequel to the series of guidance, he has to live up to the dawn of Qiyamat. Such traditions are quoted from the Holy Prophet (S.A.), Imam Baqir (A.S.), Imam Jafar Sadiq (A.S.), Imam Musa Kazim (A. S .), Imam Reza (A.S.), Imam Hasan Askari (A.S.) and Hazrat Hujjat (A.S.) himself. The exact words quoted from them are:
+In several traditions one of the causes of occultation as explained by various Imams (A. S.) is the fear of getting killed. If Imam Mahdi (A. S.) would have appeared in such circumstances, there was every possibility of his assassination. Since he is the final sequel to the series of guidance, he has to live up to the dawn of Qiyamat. Such traditions are quoted from the Holy Prophet (S.A.), Imam Baqir (A.S.), Imam Jafar Sadiq (A.S.), Imam Musa Kazim (A. S.), Imam Reza (A.S.), Imam Hasan Askari (A.S.) and Hazrat Hujjat (A.S.) himself. The exact words quoted from them are:
 
 “If he would be recognized then he would be reduced to bits and pieces.”
 
@@ -126,7 +126,7 @@ These are those things which have increased the distance between us and Imam (A.
 
 (Beharul Anwar, Vol. 51, pg. 112; Mikyalul Makarim, Vol. 1, pg. 132)
 
-Hazrat Hujjat (A. S .) himself had explained the same thing in his Epistle (Tawqee) which he\
+Hazrat Hujjat (A. S.) himself had explained the same thing in his Epistle (Tawqee) which he\
 despatched to Shaikh Mufid (R.A.) inter alia replying to other questions. He wrote:
 
 “If our partisans (May Allah help them in His obedience) would have fulfilled their covenant with united hearts then there would have been no delay in our meeting and they would have been blessed with our visitation at the earliest along with the recognition of truth and confirmation of our rights. Those things which have increased the distance between them and us are those detestable reports (about their deeds) which are not expected of them. And Allah is the best helper.”
@@ -209,21 +209,21 @@ When the condition is such then we must always think while acting that our Imam 
 
 THE FORTUNATE ONES
 
-Finally let us cast a glance on this aspect too before we conclude. It is not that Hazrat Hujjat (A.S.) is all alone and absolutely forlorn in this gloomy era of Ghaibat-e-Kubra. Although precise details are not known about such matters but whatever has been mentioned in the traditions is as follows :
+Finally let us cast a glance on this aspect too before we conclude. It is not that Hazrat Hujjat (A.S.) is all alone and absolutely forlorn in this gloomy era of Ghaibat-e-Kubra. Although precise details are not known about such matters but whatever has been mentioned in the traditions is as follows:
 
-Imam Zainul Abedeen (A. S.) said :
+Imam Zainul Abedeen (A. S.) said:
 
 “None will know about his whereabouts, neither a Wali (friend of God) nor any commoner but that person who serves him and carries out his orders.”
 
 (Behar Vol. 52, pg. 153, Ibid 53/324)
 
-Imam Mohammad Baqir (A.S.) said :
+Imam Mohammad Baqir (A.S.) said:
 
 “There is a house of Saheb-e-Amr, which is named as ‘Baitul Hamd’. A lamp is lit since his birth and will remain so uptil his reappearance.”
 
 (Ghaibat-e-Sughra, Tusi, pg. 280, Behar Vol. 52, pg. 158, Yaumul Khalaas, pg. 140)
 
-Imam Jafar Sadiq (A.S.) said :
+Imam Jafar Sadiq (A.S.) said:
 
 “…There are two occultations for our Qaem, one of them is brief while the other would be prolonged. In the former occultation, his whereabouts will be known to his especially privileged Shias. While in the latter occultation only they will know his place who are his best of friends and servants in religion.”
 
