@@ -118,7 +118,7 @@ With the completion of the preface, it is appropriate to discuss why the author 
 
 (Preface, pg. 6-7)
 
-This statement of Ayatullah Lutfullah Saafi is particularly relevant when you consider that so many individuals have claimed Mahdaviyat on the pretext of eliminating falsehood and establishing peace. We find several imposters who were low on morals but very high on greed for wealth and status from ations like Iran , India and Africa who claimed to be the Promised Mahdi.
+This statement of Ayatullah Lutfullah Saafi is particularly relevant when you consider that so many individuals have claimed Mahdaviyat on the pretext of eliminating falsehood and establishing peace. We find several imposters who were low on morals but very high on greed for wealth and status from ations like Iran, India and Africa who claimed to be the Promised Mahdi.
 
 The author further elaborates that these imposters abused and whitewashed the minds of the common masses by attributing themselves with the characteristics, signs and other facets narrated by the Holy Prophet (s.a.w.a.) for Imam Mahdi (a.t.f.s.). Since the common Muslim was not well-versed with these prophetic forecasts about the Mahdi, he proved easy prey for these imposters.
 
