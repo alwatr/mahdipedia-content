@@ -29,7 +29,7 @@ Such selected people were called as special representatives, deputies, doors of 
 
 (1) The First Deputy:-
 
-Abu Amr Uthman Ibne Saeed Amri :
+Abu Amr Uthman Ibne Saeed Amri:
 
 He was from the Bani Asad clan. Due to his ancestral links he was called as Abu Amr but on the advise of Imam Hasan Askari (AS), he changed his title from Abu Amr to Amravi. He was also addressed as Askari and some even called him as “Sammaan” (oil merchant).
 
@@ -39,7 +39,7 @@ Till 254 A.H. he was the representative of Imam Ali Naqi (A.S.) He (A.S.) used t
 
 After the demise of Imam Ali Naqi (A.S.) in 254 A.H. he became the special representative of Imam Hasan Askari (A.S.) who used to say “Abu Amr is a reliable and trustworthy person. He was relied upon evey by the previous Imams and in my life as well as after my death, he is reliable whatever he narrates is on my behalf and his messages are actually my messages”.
 
-Imam (A.S.) also says :
+Imam (A.S.) also says:
 
 “Stand witness that Uthman bin Saeed is my representative. His son, Mohammad Bin Uthman is Mahdi (A.S.)’s representative. when a son (Hazra Mahdi (A.S.) was born to Imam Hasan Askari (A.S.), he ordered Abu Amr to distribute ten thousand roties and ten thousand pieces of meat among the Bani Hashim and also sacrifice sheep and goats for Aqeeqah.
 
@@ -97,19 +97,19 @@ Everybody considered Husayn Ibn Rauh to be a very knowledgeable person, whether 
 
 Whatever he did was based only on the instructins of Imam Mahdi (A.S.)
 
-Abdu Sahl Nawbakht was asked as the special representative and why not he (Abu Sahl) ? He replied, “The Imams knows better whom to appoint. I have debates with the opponents of Shiaism, If I was knowing the wherebouts of Imam (A.S.) and during a debate if If could not prove my point, I would reveal his hiding place. But Abul Qasim is not like this If Imam was hiding behind him, he would allow himself to be scissored into pieces but would not show his Imam to the enemies”.
+Abdu Sahl Nawbakht was asked as the special representative and why not he (Abu Sahl)? He replied, “The Imams knows better whom to appoint. I have debates with the opponents of Shiaism, If I was knowing the wherebouts of Imam (A.S.) and during a debate if If could not prove my point, I would reveal his hiding place. But Abul Qasim is not like this If Imam was hiding behind him, he would allow himself to be scissored into pieces but would not show his Imam to the enemies”.
 
 Husayn Ibn Rauh was Imam (A.S.)’s special representative for about twenty one years. He expired in Shaban, 326 A.H. and is buried in the courtyard of Ali Ibn Mohammad Nawbakth’s house in Baghdad. He was a contemparory of Muqtadir and Raazi, the Abbaside Kings.
 
-(4) The fourth special representative Abul Hasan Ali Ibn Mohammad Seymouri :
+(4) The fourth special representative Abul Hasan Ali Ibn Mohammad Seymouri:
 
 He was appointed as the fourth special deputy of Imam Mahdi (A.S.) after the demise of Husain Ibn Rauh. He is remembered as on of companions of Imam Hasan Askari (A.S.) and the special representative of Imam Mahdi (A.S.) in Baghdad. For three years, he held the coveted post of deputyship. Unlike the previous deputies he could not perform any major task due to his truncated tenure. One of his extra ordinary feats was his prediction of Ibn Babway’s demise.
 
-The last Tawqee from Imam (A.S.) received by Ali Ibn Mohammad announced the termination of the period of minor occultation Its contents are as follows :-
+The last Tawqee from Imam (A.S.) received by Ali Ibn Mohammad announced the termination of the period of minor occultation Its contents are as follows:-
 
-In the name of god the beneficient, the merciful :
+In the name of god the beneficient, the merciful:
 
-O Ali Ibn Mohammad Seymori May increase the reward of your brothers on account of the diffculties born by you. You will die within six days. Regulate your affairs and sum them up. Do not make a will to anybody. After you, this chain (of special deputyship) will end and it will mark the beginning of the major occultation. Now, I will re-appear on divine command. But that will be after a long time when the hearts of the people will become hardened and the world will become full of injustice, tyanny and oppression. Yes ! there will be some who will claim to be my special deputes. Whoever claims to consult me before the emergence of Sufyani and the heavenly Voice, he is a deceiver and liar. There is no power and strength except that of Allah, the Al-mighty the High.”
+O Ali Ibn Mohammad Seymori May increase the reward of your brothers on account of the diffculties born by you. You will die within six days. Regulate your affairs and sum them up. Do not make a will to anybody. After you, this chain (of special deputyship) will end and it will mark the beginning of the major occultation. Now, I will re-appear on divine command. But that will be after a long time when the hearts of the people will become hardened and the world will become full of injustice, tyanny and oppression. Yes! there will be some who will claim to be my special deputes. Whoever claims to consult me before the emergence of Sufyani and the heavenly Voice, he is a deceiver and liar. There is no power and strength except that of Allah, the Al-mighty the High.”
 
 This is the last letter received from Imam (A.S.) in the minor occultation. After three years of deputyship, Ali Ibn Mohammad Seymouri left this world in Sahaban, 329 A.H. He is buried on the Khalanji Highway near Bab-ul-Mahool on the banks of the Abi Eqaab river. His last words were “For God is the Affaif and He will himself execute it”. He lived during the reign of Muttaqui, the Abbaside Caliph.
 
@@ -123,7 +123,7 @@ Some Peculiarities About Special Representation:
 
 2) Alawis were kept away from deputyship and others were purposefully granted this status because the Alawis were clearly marked in the society and were under strict surveillance and scrutiny of the Government.
 
-3) All of the affairs of the deputies were conducted in Baghdad for the followig reasons :-
+3) All of the affairs of the deputies were conducted in Baghdad for the followig reasons:-
 
 a) At the time of Imam Hasan Askari (A.S.)’s martyrdom, those people who had come from Qum to Sammarra, were told that some-one would be appointed in Baghda so that they could give their offerings to him and received Imam (A.S.) letter from him.”
 
@@ -139,7 +139,7 @@ c) These deputies were rarely engaged in social work due to the follwing reasons
 
 6) All the tawqees received during the time of the four special deputies, had only one hand-writing and people were recognising it. This similarity in writing proved that all these letters were from Imam (A.S.) and people followed them diligently.
 
-7) About the Tawqees one can say :-
+7) About the Tawqees one can say:-
 
 a) They follow the pattern of traditions.
 
@@ -151,11 +151,11 @@ d) They were coming about 2-3 days after the questions.
 
 9) It was not necessary that everybody should have had direct contacts with the special representatives, they made their close friends and intimates as the medium between themselves and the masses. For example, Mohammad Ibn Husayn had appointed ten deputies in Baghdad to collect the offerings, amoung them was Husayn Ibn Rauh.
 
-The aims of Special representation can be summed up in the following words : (i) To prepare the people for the major occultation and habituate them to live with their Imam in concealment.
+The aims of Special representation can be summed up in the following words: (i) To prepare the people for the major occultation and habituate them to live with their Imam in concealment.
 
 (ii) To take some steps in solving the problems and reformation of the Shia Society.
 
-Note :All references can be found in “Kitab-ul-Ghaibah”, of Shaykh Toosi and
+Note:All references can be found in “Kitab-ul-Ghaibah”, of Shaykh Toosi and
 
 “Kamaaluddin” of Ibn Babuwayh.
 
