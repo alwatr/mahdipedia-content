@@ -27,13 +27,13 @@ The dua of Allahumma – kun le valiyeka’ is such a splendid dua which is cont
 
 spiritual and transcendent effects of this Dua could be enhanced manifold if only we are aware of its meaning and interpretation. Keeping this purpose in view this article was written so that the devotees of Ahle-bayt, Shias and awaitees of Imam (A.S.), the world over may be benefitted from it. This article is based on seven topics. They are as follows
 
-1. The authenticity of Dua :
+1. The authenticity of Dua:
 
 The eminent Shia traditionalist Siqatul Islam Shaikh Abu Jaafer Mohammed bin Yaqub Kulaini (Exp. 329 A.H.) has recorded this Dua in his magnificent book ‘ Al-Kafi’ in the ‘chapter on fasting’ under the section of ‘The Duas of last ten days of Ramazan’, the fourth tradition being narrated by the reliable companion of Imam Ali Naqi (A.S.) viz Mohammed bin Esa bin Ubaid (Al-Kafi, Vol. 4, pg. 162). The great scholar Janab Sayed bin Tawoos (Exp. 664 A.H.) in his book ‘Mizmarus Sabaq’ (which is a complement to the book of Shaikh Abu Jaafer Tusi’ s work `Misbahul Mutahajjid’) quoted from the book ‘Amale Shahre Ramzan’ compiled by the erudite Abul Faraj Mohammed bin Ali alias Ibn Abi Qurrah, (a renowned traditionalist of fifth century hijri) who through his chain of narrations quoted from Ali bin Hasan bin Fazzaal who related from Mohammed bin Esa bin Ubaid and he narrated from the Infallible Imams (A. S.).
 
 Based on this, in most of the references, this Dua is quoted from the reliable companion of Imam Ali Naqi (A.S.) viz Mohammed bin Esa who narrated from Infallible Imams (A. S.).
 
-2. The contents of Dua :
+2. The contents of Dua:
 
 The content matter of Shaikh Abu Jaafer Kulaini is different than that of Sayed bin Tawoos and Shaikh Kafami. Following are the versions of each of the traditionalists:-
 
@@ -41,7 +41,7 @@ Shaikh Kulaini wrote that this dua should be recited in the blissful night of sh
 
 Janab Sayed Tawoos after writing the said period of recitation and its mode relates the content as follows:-Allahumma kun-le waliyekal Qaem be Amrek al-Hujjat ibinile Hasanil-Mahdi Alaihe wa ala abaaehi Afzalahus-Salaate-was Salaam fi Hazehis Sa’ate wa fi kulle Sa’ah Waliyan wa Hafezan wa Qa’edan wa naseran wa dalilan wa muayyedan Hata Tuskenahu arzaka Tau’an wa tomatte’ahu fiha Tulan wa arzan wa Tajalahu wa zurriyatahu minal aimmatil warethena. Allaumman surho wantasir behi waj alin nasra minka lahu wa ala yadehi wajalin nasralahu wal fathaala wajhehi waleatuwajjehil amra ela ghairehi. Allahummazhirbehi deeneka wa sunnato nabiyeka hatta la yastakhfiya beshaiim-minal haqqe makhafata ahadim minal khalke. Allahumma inni arghabo elaika fi daulatin karima toizzo behal Islama wa ahlahu wa to zillo behan nifaqa wa ahlahn wa tajalna fiha minaddoate ila taateka wal qadate ila sabeelekawa atenafidduniya hasanatan wa fil akherate hasanataun wa qena azaban naar wajmaa lana khairad-daraine waqze anna jameea ma tohibbo fihema waj allana fi zalekal khiyarata berehmateka wa manneka fi afeyatin Ameen Rabbal Alameena wa zidna min Fazleka wa yadekal milaa fa inna kulla moatin yankoso min mulkehi wa ataoka yazeedo fi mulkika.
 
-Shaikh .Taqyuddeen Kafami has also written the above mentioned preface and manner of recitation for this dua and has quoted the dua as, follows:-“Allhumma kulewaliyeka Mohammad abnal Hasane Al Mahdiyye Fi hazissaate wa fi Kulle Sa’ah waliyan wa hafezan wa qaedan wa naseran wa dalilan wa aynan hatta tuskinahu arzaka tau’an wa tumattiahu fiha tawila”.
+Shaikh.Taqyuddeen Kafami has also written the above mentioned preface and manner of recitation for this dua and has quoted the dua as, follows:-“Allhumma kulewaliyeka Mohammad abnal Hasane Al Mahdiyye Fi hazissaate wa fi Kulle Sa’ah waliyan wa hafezan wa qaedan wa naseran wa dalilan wa aynan hatta tuskinahu arzaka tau’an wa tumattiahu fiha tawila”.
 
 3. The Explanation:
 
@@ -69,7 +69,7 @@ Allah. The infinite mercy and grace of Allah is sought.
 
 ‘Alaihe wa-Ala-Aabaeh’: Ala means upon and `he’ is a pronoun, in both the places it refers to Hazrat Mahdi (A.S.).
 
-‘Aaba’ : is a plural of ‘Ab’ which means the forefathers of Hazrat Mahdi (A.S.). From the Holy Prophet (S.A.) upto Imam Hasan Askari (A.S.) all infallible predecessors of Imam (A.S.) are included in this word.
+‘Aaba’: is a plural of ‘Ab’ which means the forefathers of Hazrat Mahdi (A.S.). From the Holy Prophet (S.A.) upto Imam Hasan Askari (A.S.) all infallible predecessors of Imam (A.S.) are included in this word.
 
 ‘Fee-Hazehis-Sa’ate-Wa-Fi-Kulle-Sa’ah’: S a’ ah’ is derived from the word `Sau’, which hints at time, hour or age. Hence the phrase implies `at this hour and every time’.
 
@@ -82,15 +82,15 @@ You be the ‘Guardian’ and ‘Master of Imam (A.S.) and handle his affairs’
 
 ‘Wa-Naseran’: ‘Nasir’ is derived from the word ‘Nasr’, which means ‘help’ and ‘assistance’.
 
-‘Wa-Daleelan’: ‘Daleel’ is from the roots of ‘Dalla-yadullo’ , which means ‘Guidance’ . It is for\
+‘Wa-Daleelan’: ‘Daleel’ is from the roots of ‘Dalla-yadullo’, which means ‘Guidance’. It is for\
 this reason that Guide is called ‘Daleel’
 
 ‘Wa-Aynan’: It means ‘Protector’.
 
-‘Hatta Tuskinahu-arzaka-T au’an’ : ‘Hata’ means `until’, ‘Tuskin’ is from Sukoon’. ‘Tau`aa’ means ‘obedience’’, ‘Arzaka’ means ‘your earth’. Hence it means that ‘Until he remains on earth (the inhabitants) should be obedient to him.’ After the reappearance of Imam (A.S.), the whole earth will be ruled and governed by Imam (A. S.).
+‘Hatta Tuskinahu-arzaka-T au’an’: ‘Hata’ means `until’, ‘Tuskin’ is from Sukoon’. ‘Tau`aa’ means ‘obedience’’, ‘Arzaka’ means ‘your earth’. Hence it means that ‘Until he remains on earth (the inhabitants) should be obedient to him.’ After the reappearance of Imam (A.S.), the whole earth will be ruled and governed by Imam (A. S.).
 
-‘Wa Tumattiahu-Fiha-Tawila’ : ‘Tumattio’ is from ‘Mata’, which means to be ‘favoured’ .\
-‘Fiha’ is pointing towards the earth, ‘Tawila’ means ;prolonged’, this means that the duration\
+‘Wa Tumattiahu-Fiha-Tawila’: ‘Tumattio’ is from ‘Mata’, which means to be ‘favoured’.\
+‘Fiha’ is pointing towards the earth, ‘Tawila’ means; prolonged’, this means that the duration\
 of his rule should prolong. This sentence clearly shows that ‘Bada’ can occur in the duration of the\
 rule of Imam (A.S.) and the stipulated period (7 years, 9 years, 40 years or 70 years) could be\
 increased. No duration is the final word.
@@ -119,7 +119,7 @@ These invocations are real application of monotheism. Man may attain the highest
 
 “0 Ye men! You are all destitutes towards Allah and Allah is affluent the Praised One.”
 
-(Fatir :15)
+(Fatir:15)
 
 Hence these supplication never imply that the Holy Prophet (S.A.) and his Holy Progeny (A.S.) are in need of our dua, rather it purports that they are in need of the blessings of Allah and this is monotheism in true sense. Hence, through this dua not only are we asking for increased blessings of Allah for our Imam (A.S.) but we are also expressing our affection and adherence towards this holy family through this dua.
 
@@ -153,11 +153,11 @@ Muslim of every age to remember the Imam of his time regularly and not to forget
 
 “May my life be sacrificed for you Though you are away from our eyes, no gathering is devoid of your remembrance. May I be your ransom. Though you may be far away from us, your remembrance is not.”
 
-This dua is for the safety and wellbeing of Imam Mahdi (A.S.) because it is in the Power of Allah to accept the dua, change the circumstances, destiny, Bada etc. Hence we are asking for enhanced protection and security from Allah .We are always praying and wishing that Hazrat Wali-e-Asr (A.S.) should remain safe and secure from all sorts of calamities and hardships. No grief or sorrow should strike him. This is the least which a friend desires for his beloved. While the same desire is intense for the Ahle bayt (A.S.).
+This dua is for the safety and wellbeing of Imam Mahdi (A.S.) because it is in the Power of Allah to accept the dua, change the circumstances, destiny, Bada etc. Hence we are asking for enhanced protection and security from Allah.We are always praying and wishing that Hazrat Wali-e-Asr (A.S.) should remain safe and secure from all sorts of calamities and hardships. No grief or sorrow should strike him. This is the least which a friend desires for his beloved. While the same desire is intense for the Ahle bayt (A.S.).
 
 If we will pray regularly for Imam (A. S.) then certainly he too will respond and reciprocate to our feelings and remember us in his duas because he is a generous master, the son of a generous father. What else can be imagined as a greater bounty or blessing than the dua of Imam (A.S.)?
 
-The conclusion is that it is imperative upon all of us to regularly recite this dua . Through the medium of this dua we must ask from Allah for the best of bounties and favours of Imam (A.S.). Also, we should desire that Hazrat should remain safe and secure under the impregnable tutelage of Allah, and ask Allah to enlighten our spirit and gladden our heart by the remembrance of Imam (A.S.) and invoking salwaat on him.
+The conclusion is that it is imperative upon all of us to regularly recite this dua. Through the medium of this dua we must ask from Allah for the best of bounties and favours of Imam (A.S.). Also, we should desire that Hazrat should remain safe and secure under the impregnable tutelage of Allah, and ask Allah to enlighten our spirit and gladden our heart by the remembrance of Imam (A.S.) and invoking salwaat on him.
 
 ________________________________________________________________________________
 
