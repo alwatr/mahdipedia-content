@@ -10,7 +10,7 @@ tags:
   - 'AL Mahdi In Sunni'
   - 'Awaiting'
   - 'AWAITING FOR IMAM A.S.OR FOR SYMPTOMS AND SIGNS:'
-  - 'Mahdi (A.J) in Sunnies Rated : 9 (out of 10) 1 users'
+  - 'Mahdi (A.J) in Sunnies Rated: 9 (out of 10) 1 users'
   - 'The Promised Mahdi (as)'
 date: '2013-06-03'
 updated: '2013-06-03'
@@ -47,7 +47,7 @@ According to another narration some other sure symbols are related by Imam Jafar
 
 It can be concluded by keeping both the symbols together that some of them are uncertain.
 
-3. Can any change be anticipated in the things predicted ?
+3. Can any change be anticipated in the things predicted?
 
 According to the thorough and absolute Shia teachings and tenets the answer will be in affirmative. Changeability among the shias is an important belief founded on Quranic Signs (Suras).
 
@@ -61,7 +61,7 @@ Accordingly the problems of livelihood age, hunger, prestige honour, insult and 
 
 The glaring example of the changeability is the episode of the followers of Hazrat Yunus (A.S.) whose calamity was kept off and prevented. At two different places it is mentioned in the Holy Book that the followers of Hazrat Yunus (A.S.) ware subjected to the severe wrath of the Almighty God.
 
-So the Prophet distanced himself from them and went far away. But his followers suddenly changed their behaviour and stand. They pleaded for mercy form the Almighty God form the depth of their hearts. The calamity was averted (Sura-Yunus : 98).
+So the Prophet distanced himself from them and went far away. But his followers suddenly changed their behaviour and stand. They pleaded for mercy form the Almighty God form the depth of their hearts. The calamity was averted (Sura-Yunus: 98).
 
 God can change the destiny and is not subject to any control, can set right the things, comes to the rescue of those who have lost the hope, has authority to control the things when they are uncontrollable and manages the affairs when they are unmanageable. The changes and alterations should not be amounted to the repentance of God for the decision given previously.
 
@@ -85,7 +85,7 @@ The descendents of Prophet (A.S.) were embellished with divine knowledge written
 
 Regarding the change in symbols nothing was predicted so was not told by the Imam but due to the faith in alteration there is a possibility of change in symbols also.
 
-4. Can the symblos and signs be changed and subjected to alteration ?
+4. Can the symblos and signs be changed and subjected to alteration?
 
 It is a complex problem which requires literary discussion and arguments.
 
@@ -105,13 +105,13 @@ So it amounts to the change in the symbols.
 
 There can be change at least in uncertain signs and signals. Later on it would also be proved that even certain signs could aslo be changed.
 
-5. Is alteration not possible in the time of re-appearance of Imam (A.S.) ?
+5. Is alteration not possible in the time of re-appearance of Imam (A.S.)?
 
 Regarding the change both these narrations can be put as a proof in which the re-appearnce is predicted early or late. The conditions of period and time of re-apperance are discribed in some narrations.
 
 If it will be proved that re-appearance is alterable can occur late or early then it will be implied that the signs can also be changed.
 
-The following narrations can be quoted regarding the change in re-appearance :
+The following narrations can be quoted regarding the change in re-appearance:
 
 A narrator writes that he inquired from Imam Jafar Sadiq (A.S.) whether there is any remedy to this replied, “Yes but it is only you people who have disclosed this secret so the re-appearance is delayed by God.”
 
@@ -231,7 +231,7 @@ We are duty bound to provide means of eary re-appearance of Imam (A.S.) by doing
 
 7. The signs and tokens of re-appearance have a major role to play for stability and firmness in our faith for clear dealings and unblemished character.
 
-11. In What manner the discussions effects the awaiters ?
+11. In What manner the discussions effects the awaiters?
 
 It is advised in narrations to wait for re-appearance every morning and evening and all the times (Bihar 95-145/52). Such a piece of advice can be given only when the signs and tokens are inconstant.
 
