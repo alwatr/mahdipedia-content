@@ -12,7 +12,7 @@ tags:
   - 'Awaiting'
   - 'AWAITING FOR IMAM A.S.OR FOR SYMPTOMS AND SIGNS:'
   - 'Few Signs Of The Arrival Of Imam Mehdi (as)'
-  - 'Mahdi (A.J) in Sunnies Rated : 9 (out of 10) 1 users'
+  - 'Mahdi (A.J) in Sunnies Rated: 9 (out of 10) 1 users'
   - 'The Promised Mahdi (as)'
 date: '2013-06-12'
 updated: '2013-06-12'
@@ -63,7 +63,7 @@ Pharaoh, the great emperor of Egypt, who had great power and pride, claimed the 
 
 He shed the blood of innocents, and ban­ished many persons to unknown regions; but see how Almighty Allah restored His Prophet and how the Divine Will worked to protect the life of Musa (Moses – a.s.) and destroy Pharaoh:
 
-And We revealed to the mother of Musa, saying, “Give him suck; and if you fear for him, launch him on the river; and fear not, nor grieve; for We will return him to you and make him one of the Messengers.” And took him up Pharaoh’s people, that he might be to them an enemy and a (cause of their) grief, (for) verily Pharaoh and Haman and their hosts were sinners. . . So We did restore him to his mother that her age might be refreshed and that she might not grieve, and that she might know that the promise of Allah is (always) true, but most of them know not. (28:7-13).(22)
+And We revealed to the mother of Musa, saying, “Give him suck; and if you fear for him, launch him on the river; and fear not, nor grieve; for We will return him to you and make him one of the Messengers.” And took him up Pharaoh’s people, that he might be to them an enemy and a (cause of their) grief, (for) verily Pharaoh and Haman and their hosts were sinners... So We did restore him to his mother that her age might be refreshed and that she might not grieve, and that she might know that the promise of Allah is (always) true, but most of them know not. (28:7-13).(22)
 
 Yes, Allah will protect His Proof (Hujjah) and will fulfill His promises and glad tidings because His decision is based on its execution, although most people do not know it.
 
