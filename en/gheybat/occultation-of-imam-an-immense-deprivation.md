@@ -28,7 +28,7 @@ Allah, the Blessed, the High says in the Holy Quran:
 
 “The day when We will call every people with their Imam”
 
-(Surah Bani Israel , Verse 71)
+(Surah Bani Israel, Verse 71)
 
 Allah, the High at various places, has promised guidance to the people. To fulfill His promise, He sent Prophets and Messengers (peace be on them all) one after another, who called people towards His religion, recognition and worship. When the Prophethood was completed with the advent of the last prophet Mohammad (s.a.w.a.), He introduced Imamat in the progeny of Holy Prophet (s.a.w.a.) so that people may turn to them and save hemselves
 
@@ -96,7 +96,7 @@ Imam Mohammad Baqir (a.s.) says:
 
 The presence of Imam (a.s.) among the people to solve their questions and problems is a divine grace of immeasurable magnitude. The concealment of Imam (a.s.) from the sights of the people and their helplessness to reach the Imam (a.s.) is the justice of Allah. Grace takes precedence over justice but the disobedience and ungratefulness of the Muslims has replaced the grace of Allah with His justice. It is an irrefutable reality that the benefits that we would have enjoyed in the physical presence of Imam (a.s.), are not available now. It is a great loss and nothing can make the loss good. We only are to be blamed for the loss and nobody else.
 
-One question arises here: The cause of occultation was due to the disobedience and ingratitude of the earlier Muslims. Then why are we suffering for their action and misdeeds Is it not injustice ?
+One question arises here: The cause of occultation was due to the disobedience and ingratitude of the earlier Muslims. Then why are we suffering for their action and misdeeds Is it not injustice?
 
 Answer: Firstly, as we have already mentioned that if Allah has kept His Proof among the people, then it is His grace. And if He conceals Him, then it is His justice.
 
