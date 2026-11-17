@@ -11,7 +11,7 @@ tags:
   - 'Awaiting'
   - 'AWAITING FOR IMAM A.S.OR FOR SYMPTOMS AND SIGNS:'
   - 'DOCTRINE OF THE MAHDI.'
-  - 'Mahdi (A.J) in Sunnies Rated : 9 (out of 10) 1 users'
+  - 'Mahdi (A.J) in Sunnies Rated: 9 (out of 10) 1 users'
   - 'The Promised Mahdi (as)'
 date: '2013-06-03'
 updated: '2013-06-03'
@@ -24,7 +24,7 @@ Many people have narrated from the prophet concerning the reappearance at the en
 
 It is not a new opinion or idea that has come into existence only among the Shi’a, and in which they were prompted to believe by oppression, dreaming of someone who would come to clear the world of injustice, as some malevolent sophists have suggested. On the contrary, the concept of the reappearance of the Mahdi has been well known among all Muslims, and they have believed in it.
 
-Proof of this is that some persons falsely called themselves Mahdi during the first century after the advent of Islam; such were the leaders of the Kaysaniyyah;s the `Abbasids and the `Alawiyyah.
+Proof of this is that some persons falsely called themselves Mahdi during the first century after the advent of Islam; such were the leaders of the Kaysaniyyah; s the `Abbasids and the `Alawiyyah.
 
 Only because people believed in the Mahdi could these persons have deceived them, exploited their belief and seized power. So they made their claims in order to impress the people and spread their influence.
 
