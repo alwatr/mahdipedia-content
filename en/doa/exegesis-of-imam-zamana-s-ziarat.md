@@ -31,7 +31,7 @@ As has been customary for the past few years, we shall discuss the exegesis of I
 
 2. Imam Muhammad Baqir (a.s.) narrates:
 
-‘Friday has been named as Juma’h ( ) because on this day Allah assembled all the creatures and extracted a covenant from them concerning His Unity (Tauheed), the Prophethood of Prophet Muhammad (s.a.w.a.) and the guardianship of Ameerul Momeneen – Ali b. Abi Talib (a.s.).’
+‘Friday has been named as Juma’h () because on this day Allah assembled all the creatures and extracted a covenant from them concerning His Unity (Tauheed), the Prophethood of Prophet Muhammad (s.a.w.a.) and the guardianship of Ameerul Momeneen – Ali b. Abi Talib (a.s.).’
 
 (Tahzeebul Ahkaam by Shaykh Tusi (r.a.) vol. 3 pg. 3)
 
