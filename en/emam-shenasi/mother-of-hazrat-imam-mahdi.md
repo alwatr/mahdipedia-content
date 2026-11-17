@@ -36,7 +36,7 @@ Name of her fa­ther was Yusha, son of Qaiser of Rome and her mother was from th
 (a.s.) entrusted his companion Bashir Ibne Sulaiman (from the lineage of Abu Ayyub-e-Ansari) with a letter in Roman language along with a bag containing 220 Dinars and explained to him the characteristics of Janabe Narjis (a.s.). He recognized her and gave the letter of Imam and also paid the price and brought her to Sammarra. Imam (a.s.) entrusted her to his sister Janabe Hakimah Khatoon and asked her teach Janabe Narjis (a.s.) basic principles of Is­lam. After sometime she was married to Imam Hasan Askari (a.s.).
 
 (Kamaluddin, pg. 417, Al-Ghaibah of Sheikh Tusi (r.a.), pg. 208, Behaarul\
-Anwaar , vol. 51, pg. 6).
+Anwaar, vol. 51, pg. 6).
 
 Janabe Narjis Khatoon (a.s.) commanded a very high po­sition and Holy Prophet (s.a.w.a.) used to remember her with titles such as ‘Best woman’, ‘Leader of woman’
 
@@ -44,17 +44,17 @@ Janabe Narjis Khatoon (a.s.) commanded a very high po­sition and Holy Prophet (
 
 Even Janabe Hakima Khatoon, whose piety and sagaciousness was known to all, used to recall her with titles such as ‘my chief’ or ‘my leader’ adding to her posi­tion.
 
-(Behaarul Anwaar , vol. 51, pg. 2).
+(Behaarul Anwaar, vol. 51, pg. 2).
 
 She longed to serve her and loved her to much. She often used to kiss her hand
 
-(Behaarul Anwaar , vol. 51, pg.25)
+(Behaarul Anwaar, vol. 51, pg.25)
 
 There are two narrations regard­ing her death:
 
 (a) As per slave girl of Abu Ali Khizrani, Imam Hasan Askari (a.s.) narrated to her the incidents about his demise which grieved her and she requested Imam to beseech Allah for her early demise during his life time. Consequently, she died during the life of Imam Hasan Askari (a.s.) and it is engraved on her grave ‘This grave is of Mother of Muhammad.’
 
-(Behaarul Anwaar , vol. 51, pg. 5)
+(Behaarul Anwaar, vol. 51, pg. 5)
 
 (b) Muhammad bin Husain says that she was alive after the death of Imam (a.s.) and was imprisoned by Mo’tamid, who ordered a strict vigilance over her through some women.
 
