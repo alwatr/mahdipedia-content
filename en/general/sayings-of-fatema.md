@@ -40,7 +40,7 @@ Allah appolnted him (as apostle) so that he may complete and finalise His matter
 
 6. Allah saw nations and groups had various different sects in their religion and scattered and staying on the verge of the fires of differences, busy with the their idol worshipping. They denied God with all the signs and symbols of HIM. (IRFAN) So Allah illuminated the darknesses through my father Mohammad (SAW) and removed the darknesses from their hearts, removed (cured) the blindness of the eyes.
 
-7. My father (Mohammad (SAW) ) stood up with (his) guidance among the people. And saved them from perversion and aberration, and turned their blindness into enlightenment and guided them towards the firm redligion. And called (invited) them to the straight way.
+7. My father (Mohammad (SAW)) stood up with (his) guidance among the people. And saved them from perversion and aberration, and turned their blindness into enlightenment and guided them towards the firm redligion. And called (invited) them to the straight way.
 
 8. You the servants of Allah, are the ones to maintain His injunctions and prohibitions, and the carriers of His religion, and His relevation, and the trustees of Allah upon your souls, and the propagators of His religion among the other nations.
 
