@@ -31,7 +31,7 @@ In the light of traditions, of the Holy Prophet (s.a.w.a.), the rightly guided I
 
 This being a widely acknowledged belief, the compilers of Sehaah-e-Sittah, Janabe Mohammad Ibn Ismail Bukhari (in his Sahih in Kitabul Ambiya) and Imam Muslim Ibn Hajaj (in his Sahih in Kitabul Imaan) have extensively quoted the companion of the Prophet (s.a.w.a.) Abu Hurrairah, in this regard.
 
-(1) The Holy Prophet (s.a.w.a.) declared, ?What will happen to you when Isa ibn Maryam (a.s.) descends (from the heavens) and your Imam is in your midst.
+(1) The Holy Prophet (s.a.w.a.) declared,?What will happen to you when Isa ibn Maryam (a.s.) descends (from the heavens) and your Imam is in your midst.
 
 (Sahihe Bukhari 13/57, Pg. 1272, Kitabul Ambiya; Sahih Muslim, 29/ 1, Pub. by Darul Furqan, 722, Jame Masjid, Delhi, Kitabul Iman)
 
@@ -67,7 +67,7 @@ This short article does not posses the scope to reproduce all the traditions, ra
 
 (ii) Shaikh Najmuddin Jafar Ibne Mohammad Al-Askari in his book Al Mahdi al Maud Al Muntazar.. Vol 2, Pg. 215 – 246 has brought 44 traditions entirely from Sunni sources. Some of these books are worth mentioning: Eqdud Durar, Al- Arbaen, Sehah-e-Sitta, Noorul Absaar, Yanabiul Muwaddah, Isaaful Raagebeen, Al-Qaulul Mukhtasar fi alaamate Al Mahdi al Muntazar, Faraidus Simmtain, arjahul Mataalib, Al Haowi Lil Fataewi.
 
-Regarding the descent of Hazrat Isa (a.s.) the above mention traditions are more than sufficient and amply prove that there is absolutely no dispute among Muslim scholars in this regard. But, as in numerous cases, where weak and fabricated traditions are presented to misguide the people, so is the case with the belief of,Descent of Isa (a.s.) and reappearance of Hazrat Mahdi (a.s.), where a tradition is put forth to weaken this belief.
+Regarding the descent of Hazrat Isa (a.s.) the above mention traditions are more than sufficient and amply prove that there is absolutely no dispute among Muslim scholars in this regard. But, as in numerous cases, where weak and fabricated traditions are presented to misguide the people, so is the case with the belief of, Descent of Isa (a.s.) and reappearance of Hazrat Mahdi (a.s.), where a tradition is put forth to weaken this belief.
 
 This tradition is:
 
@@ -91,11 +91,11 @@ Other traditions have shown the two personalities interacting with each other. F
 
 Jabir Ibne Abdullah Ansari has quoted the Holy Prophet (s.a.w.a.):
 
-Isa ibne Maryam will descend (on the earth) and the Amir of Muslims (Imam) will ask him come and lead us in prayer. Ibne Maryam having due regard for the respect and honor which Allah has beneficently bestowed upon this nation (of Prophet Mohammad (s.a.w.a), will decline stating,Only among ourselves will some be leaders of others and will have supremacy on one and others.
+Isa ibne Maryam will descend (on the earth) and the Amir of Muslims (Imam) will ask him come and lead us in prayer. Ibne Maryam having due regard for the respect and honor which Allah has beneficently bestowed upon this nation (of Prophet Mohammad (s.a.w.a), will decline stating, Only among ourselves will some be leaders of others and will have supremacy on one and others.
 
 (Sahih Muslim, Urdu translation, Published by Darul Furqan, Delhi, Kitabul Imaan, Pg. 29)
 
-The fact is clarified further in this translation where both the personalities converse with each other and the decision prevails that Hazrat Mahdi (a.s.) is Imam, while Hazrat Isa (a.s.) is the follower.Hence, no possibility remains that the tradition,Mahdi is none (but) Isa.be regarded as true and correct.
+The fact is clarified further in this translation where both the personalities converse with each other and the decision prevails that Hazrat Mahdi (a.s.) is Imam, while Hazrat Isa (a.s.) is the follower.Hence, no possibility remains that the tradition, Mahdi is none (but) Isa.be regarded as true and correct.
 
 Astonishing
 
