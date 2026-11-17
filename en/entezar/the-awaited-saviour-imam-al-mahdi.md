@@ -1072,7 +1072,7 @@ Imam Musa Kazim (a) has narrated from Imam Jafar Sadiq (a) that ask these people
 
 21) Surah Tauba, Verse 33 (9:33)
 
-“He it is who hath sent His messenger with the guidance and the Religion of Truth,that He may cause it to prevail over all religion, however much the idolaters may beaverse.”
+“He it is who hath sent His messenger with the guidance and the Religion of Truth, that He may cause it to prevail over all religion, however much the idolaters may beaverse.”
 
 This verse refers particularly to Imam Mahdi (a). He is the one who will establish firmly over all other religions and fill the earth with truth and justice, just as it will be filled with tyranny and oppression. (Tafseer Ali b. Ibrahim)
 
@@ -1240,7 +1240,7 @@ That is, we were not among the Shias of Ali (a) and the Ahle Bait (a).
 
 (Since the prayers are incomplete without the love of Muhammad (s) and Ale Muhammad (s) in the hearts, and Durood on the lips)
 
-“…nor did we feed the wretched. We used to wade (in vain dispute) with (all) waders,And we used to deny the Day of Judgment,…”
+“…nor did we feed the wretched. We used to wade (in vain dispute) with (all) waders, And we used to deny the Day of Judgment,…”
 
 The “Day” (Youm-e-Din) is the Day of the Mahdi (a).
 
@@ -1314,7 +1314,7 @@ It has been narrated from Imam Musa Kazim (a) that the “seen bounty” is the 
 
 It has been narrated from Imam Jafar Sadiq (a) that this means the recognition and acknowledgment of Imam Ali (a) and the Holy Imams (a).
 
-“…We give him increase in its harvest. And Whoso desireth the harvest of the world,We give him thereof, and he hath no portion in the Hereafter.”
+“…We give him increase in its harvest. And Whoso desireth the harvest of the world, We give him thereof, and he hath no portion in the Hereafter.”
 
 That is, he will not have any share in the government of Truth, which will be established by Imam Mahdi (a).
 
