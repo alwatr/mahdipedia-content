@@ -49,7 +49,7 @@ The writings of these Ahle Sunnat Scholars are centered around this quotation, �
 
 He is the same Mahdi Mawood who is mentioned in reliable and correct Ahle Sunnat traditions and there is not at all any possibility that he may be some other person”.
 
-THE AHLE SUNNAT SCHOLARS WHO BELIEVE ON THE BIRTH OF IMAM AL MAHDI :
+THE AHLE SUNNAT SCHOLARS WHO BELIEVE ON THE BIRTH OF IMAM AL MAHDI:
 
 Late Shaikh Najmudden al Askari in the first chapter of his book ‘Al Mahdi al Mawood al Muntazar’ have mentioned the names of forty Ahle Sunnat Scholars who accepted the birth of Imam al Mahdi (a.s.) Similarly the contemprory scholar Shaikh Lutfullah Safi in his book Muntakabul Asar has mentioned the names of 26 Ahle sunnat Scholars who are of the opinion that Imam al Mahdi is already born.
 
@@ -71,31 +71,31 @@ The Qaem and Awaited and he is last of the Imam”——till end of the statemen
 
 And his age at the death of his father was five years and Allah gave him wisdom”——THE END—
 
-References :
+References:
 
-1. Shabrawi Shafaee Book : Al-Athaaf be hubbil Ashraaf\
+1. Shabrawi Shafaee Book: Al-Athaaf be hubbil Ashraaf\
 2. Abdul wahab-e-Sha’araani\
-Book : Al Yawa qeet-o-wal Jawaahir\
+Book: Al Yawa qeet-o-wal Jawaahir\
 3. Sheikh Abdullah Madani Shafaee\
-Book : Ar-Riyaazy uz Zaahirah\
+Book: Ar-Riyaazy uz Zaahirah\
 4. Serajuddeen Ar Rafai\
-Book : Sehaah ul Akhbaar\
+Book: Sehaah ul Akhbaar\
 5. Al Ustaz Behjat Afandi\
-Book : Muhaakamah\
+Book: Muhaakamah\
 6. Al Hafiz Mohammed bin Mohammed Hanafi Nakshbandi\
-Book : Faslul Khitab.\
+Book: Faslul Khitab.\
 7. Sulayman Qonduzi-e-Hanafee\
-Book : Yanabee ul Mawaddah.\
+Book: Yanabee ul Mawaddah.\
 8. Sablanjee-e-Shafaee\
-Book : Noor ul Absaar.\
+Book: Noor ul Absaar.\
 9. Ibn Khallakaan.\
-Book : Wafayaat-ul-Ayaan\
+Book: Wafayaat-ul-Ayaan\
 10. Ibn Khashshab\
-Book : Tarikh-o-Mawaaleedil Aimmah\
+Book: Tarikh-o-Mawaaleedil Aimmah\
 11. Abdul Haq Dahlavi.\
-Book : Risalah -fi- Ahwal-e-Aimmah\
+Book: Risalah -fi- Ahwal-e-Aimmah\
 12. Mohammed Ameen Baghdadi Sowaidi\
-Book : Sabaaek-uz-Zahab\
+Book: Sabaaek-uz-Zahab\
 The Belief In Mahdaviyat & Sunni Scholars::
 
 In the present times, the worldwide condition of Islam is such that, despite of its being divine and veracious (truthful) religion it is despised by many upto the extent of enmity. The reason being false propaganda and baseless misconceptions.
@@ -122,7 +122,7 @@ And following in the foot-steps of the same scholars, some recent scholars have 
 
 Thus materialism had penetrated even into their beliefs. Consequently, either they reject transcendental and hidden aspects from their base, or they try to mould them into materialistic frame-work.
 
-Leave aside the aspect of Mahdaviyat, they have not even spared the belief in Revelation, Prophethood and above all : Monotheism…………………….The only reason being that after accepting the materialistic ideas, it is impossible to believe in transcedental ideas. Since the belief in Mahdaviyat is also a belief in hidden concept and more over to believe that Hazrat Mahdi (a.s.) is a mortal like us and though he passes his life amongst us, he is far from our vision.
+Leave aside the aspect of Mahdaviyat, they have not even spared the belief in Revelation, Prophethood and above all: Monotheism…………………….The only reason being that after accepting the materialistic ideas, it is impossible to believe in transcedental ideas. Since the belief in Mahdaviyat is also a belief in hidden concept and more over to believe that Hazrat Mahdi (a.s.) is a mortal like us and though he passes his life amongst us, he is far from our vision.
 
 Hence this belief for materialists is like adding insult to injury.
 
@@ -138,7 +138,7 @@ And for the understanding of a layman we will also produce some historical evide
 
 So that the truth becomes manifest and explicit and righteous may be notified from them.
 
-I) The Interpreters of Quran : have mentioned
+I) The Interpreters of Quran: have mentioned
 
 coutless ayats regarding Hazrat Mahdi (A.S.) from Quran. And moreover many books have been complied by the name of “MAHDI IN QURAN”. But over here we will confine our discussion to those ayats which, interpreters have related it to Hazrat Mahdi (A.S.) by some source or reference.
 
@@ -146,7 +146,7 @@ coutless ayats regarding Hazrat Mahdi (A.S.) from Quran. And moreover many books
 
 7 related from Naeem Ibne Hammad)
 
-2) Imam Abu Ishaq Thalabi writes in the of 9th ayat of sura-kahf which is particular to Ashabe Khaf that Holy Prophet (as) said that : Mahdi (a.s.) will say Salam to Ashabe-Khaf and Ashabe-Kahf will reply to ti And by the order of God will again revert to their condition, and will not rise before Quiyamat (2-Iqdud-Dorar-chapter 7).
+2) Imam Abu Ishaq Thalabi writes in the of 9th ayat of sura-kahf which is particular to Ashabe Khaf that Holy Prophet (as) said that: Mahdi (a.s.) will say Salam to Ashabe-Khaf and Ashabe-Kahf will reply to ti And by the order of God will again revert to their condition, and will not rise before Quiyamat (2-Iqdud-Dorar-chapter 7).
 
 3) Muqatil Ibn Sulaiman and his followers regarding the ayat opined that it is concerning the re-appearance of Hazrat Mahdi (a.s.) Over here refers to (i.e. the hour of re-appearance) of H. Mahdi (a.s.)
 
@@ -154,9 +154,9 @@ coutless ayats regarding Hazrat Mahdi (A.S.) from Quran. And moreover many books
 
 188. In the book so tafsir the details of ayat (Sura Zukhruf Ayat) is mentioned as it is pertaining to H. Mahdi (a.s.) who is in the offspring of Janabe-Fatema (a.s.).
 
-Reference : As-Sawaaequl Mohreqa page. 96, Is aafur-Raghebin page. 156, Sura Zukhruf ayat-61).
+Reference: As-Sawaaequl Mohreqa page. 96, Is aafur-Raghebin page. 156, Sura Zukhruf ayat-61).
 
-5) Allama Shahabuddin whos is popularly known as Malakul-Ulamam Shamsuddin Ibn Umar Al-Hindi, who had compiled as tafsir by the name of ‘Al-Bahrul Mawaj’ writes in his tafsir on the authority of Jabir Ibn Abdullah Ansari, he quotes a tradition that : Jabir went to meet Janabe-Zahra (a.s.). He saw she is having tablets over which names of Imams were inscribed.
+5) Allama Shahabuddin whos is popularly known as Malakul-Ulamam Shamsuddin Ibn Umar Al-Hindi, who had compiled as tafsir by the name of ‘Al-Bahrul Mawaj’ writes in his tafsir on the authority of Jabir Ibn Abdullah Ansari, he quotes a tradition that: Jabir went to meet Janabe-Zahra (a.s.). He saw she is having tablets over which names of Imams were inscribed.
 
 who were from the progeny on H.Fatema (a.s.)………Then name of Zainul-Abedin who is the son of Husain, who is father of nine Imams, then next Imam Mohammad Baqir (a.s.) and upto the ninth Imam Mohammad (after Husain) who is Al-Hujjatullah Al-Qaem Imam Mahdi (a.s.) He will disappear, will have long life.
 
@@ -168,17 +168,17 @@ II Traditionalists.
 
 2. Similarly, another oft-repeated tradition has been quoted profusely, the contents of which are. “In the last days a man will appear from my progeny, whose name will be same as as mine and his epithet will be similar to mine. He will fill this earth with equity and justice as it will be fraught with injustice and oppression”. (Tazkertul-Khaowas, Sibt Ibn Jauzi-204)
 
-3) Abu Saeed Khudri says that : ‘I heard Prophet of Allah saying that : “After me there will be twelve Imams, among them ninth after Husain will be “Mahdi.” (Nurul-Absar-Shablanji page 255).
+3) Abu Saeed Khudri says that: ‘I heard Prophet of Allah saying that: “After me there will be twelve Imams, among them ninth after Husain will be “Mahdi.” (Nurul-Absar-Shablanji page 255).
 
-4) Holy Prophet (s) said : Mahdi is from my progeny from the offspring of H.Fatema Zahra (S.A.) “(Sunan Abi Dawood-Kitabul-Mahdi, Vol-4-page. 151)
+4) Holy Prophet (s) said: Mahdi is from my progeny from the offspring of H.Fatema Zahra (S.A.) “(Sunan Abi Dawood-Kitabul-Mahdi, Vol-4-page. 151)
 
-5) Holy Prophet (s) said : “Whosever denies the uprising of Hazrat Mahdi (a.s.) had denied each and everthing revealed upon me and as a result becomes infidel”. (Faraedus-Simtain-Hamuiy).
+5) Holy Prophet (s) said: “Whosever denies the uprising of Hazrat Mahdi (a.s.) had denied each and everthing revealed upon me and as a result becomes infidel”. (Faraedus-Simtain-Hamuiy).
 
 The aforementioned traditions are authentic and explicitly regarding Hazrt Mahdi (a.s.) who will rise in the last days, who is from the progeny of Imam Husain (a.s.) and H.Fatema (s.a.). Particularly, the last traditions shows the importance of this belief viz. ‘the disbelievers in this (H.Mahdi) is like disleliever in Quran and is an infidel. Although, this much is sufficient for………i.e. men of understanding, but we for the sake of utmost satisfaction delve into the ivew points of Scholars.
 
 III Scholars:
 
-1) Sayed Ahmed Zaini Dahlan, the Mufti of Makka Opines on the traditions pertaining to ‘Mahdi’ (a.s.) that : “Such traditions are Mutawatir’ (too profusely repeated), among them some are ‘Sahih’ (Correct), some are ‘Hasan. (approved Good) and some are ‘Zaif (weak)”.
+1) Sayed Ahmed Zaini Dahlan, the Mufti of Makka Opines on the traditions pertaining to ‘Mahdi’ (a.s.) that: “Such traditions are Mutawatir’ (too profusely repeated), among them some are ‘Sahih’ (Correct), some are ‘Hasan. (approved Good) and some are ‘Zaif (weak)”.
 
 It is crystal clear from the statement of Mufti of Makka, that though some traditions are “weak” but still they are Mutawatir (i.e. profusely quoted). And ti is well-known to the learned-men, especially those who are expert in)…..Ilme – Rejaal ‘ (study of narrators of traditions) that if any traditions attains the merit of “Tawatur’ (continuosly & profusely repeated) then some weak traditiosn cannot effect its authenticity and we have pointed towards this fact in our various editions sufficiently.
 
@@ -192,7 +192,7 @@ It is crystal clear from the statement of Mufti of Makka, that though some tradi
 
 6- Shahabuddin Ibn Hajar Al-Hanafi states that Mahdi age at the time of his father’s demise was 5 years. He was bestowed with wisdom and erudition. He is known by the name of Al-Qaem – Al-Muntazar. (As-Sawaequl-Mohreqa page, 124)
 
-Apart from these scholars many other Jurists have also given their verdicts in favour of existence of Hazrat Mahdi (a.s.), some of them are as below :-
+Apart from these scholars many other Jurists have also given their verdicts in favour of existence of Hazrat Mahdi (a.s.), some of them are as below:-
 
 1) Abu Suroor Ahmed bin Ziyaa Al – Hanfi
 
@@ -204,7 +204,7 @@ Let us now analyse the viewpoints of ancient and reliable historians regarding H
 
 IV. Historians:
 
-1- Qazi Ahmed Ibn Khallakaan writes : “Abul Qasim Mohammad bin Hasan Askari ….. who according to the creed of Imamiyat is twelfth Imam, and is known by the name of Al-Hujjah. And Ibne Arzaq in his history (Mayafareqin) has also recorded the date of birth of Hazrart Mahdi (a.s.). (Wafayatul-Aajen-vol.3 page, 316.)
+1- Qazi Ahmed Ibn Khallakaan writes: “Abul Qasim Mohammad bin Hasan Askari ….. who according to the creed of Imamiyat is twelfth Imam, and is known by the name of Al-Hujjah. And Ibne Arzaq in his history (Mayafareqin) has also recorded the date of birth of Hazrart Mahdi (a.s.). (Wafayatul-Aajen-vol.3 page, 316.)
 
 2- Abu Mohammad Abdullah bin Mohammad bin Al-Khashaab indites in his book of history; Mawalidul Aaimma wafyatuhum.’ “He is the bearer of two names, ‘Al-Khalaf and Mohammad’ and he will reappear in the last days of era. A part of the cloud will always shadow him on his head. Wherever he may go this cloud will also accompany him while shadowing over-head. And a very eloquent voice will be heard from grand a very eloquent voice will be heard from grand heavens ….. that, this is Mahdi”. (Al-Majalisus saniyyah vol. 5 page, 586.)
 
