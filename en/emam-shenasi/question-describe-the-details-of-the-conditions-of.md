@@ -1,6 +1,6 @@
 ---
 slug: question-describe-the-details-of-the-conditions-of
-title: 'Question :Describe the details of the conditions of the birth of Imam-e-Zamaan (a.t.f.s.)?'
+title: 'Question:Describe the details of the conditions of the birth of Imam-e-Zamaan (a.t.f.s.)?'
 description: 'Question 12 Describe the details of the conditions of the birth of Imam-e-Zamaan (a.t.f.s.)? Reply: Hakimah Khatoon, the daughter of Imam Muhammad Taqi…'
 kind: article
 topic: emam-shenasi
