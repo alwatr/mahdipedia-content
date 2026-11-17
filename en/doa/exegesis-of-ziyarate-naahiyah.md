@@ -168,7 +168,7 @@ Jabir narrates, “We were in the presence of the Messenger of Allah (s.a.w.a.) 
 
 (Maqtal al-Husain (a.s.) of Khaarazmi, p. 152)
 
-One day, the Holy Prophet (s.a.w.a.) was proceeding to the home of Janabe Fatima Zahra (a.s.) from the house of Umm al-Momeneen Ayesha , when he (s.a.w.a.) heard the voice of Imam Husain (a.s.) crying. He (s.a.w.a.) said,
+One day, the Holy Prophet (s.a.w.a.) was proceeding to the home of Janabe Fatima Zahra (a.s.) from the house of Umm al-Momeneen Ayesha, when he (s.a.w.a.) heard the voice of Imam Husain (a.s.) crying. He (s.a.w.a.) said,
 
 “Are you not aware that his crying hurts me?”
 
