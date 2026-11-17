@@ -25,7 +25,7 @@ review: true
 
 Hazrat Usman bin Saeed (r.a.) was the first special deputy of Imam Mahdi (a.t.f.s.) in Ghaibat-e-Sughra. The renowned Shiite scholar, Shaikh Mohammad bin Hasan Tusi (r.a.) records in his illustrious book, ‘Ghaibat’ – Among the companions that the infallible Imams (a.s.) considered as virtuous and pious, was Hazrat Usman bin Saeed-e-Amri (r.a.). Imam Ali Naqi, Al Hadi (a.s.) and Imam Hasan Askari (a.s.) have spoken highly of him and he was their most trusted companion.’
 
-(Ghaibat-e-Shaikh-e- Tusi , pg. 353)
+(Ghaibat-e-Shaikh-e- Tusi, pg. 353)
 
 His name and title
 
@@ -121,13 +121,13 @@ It was with the representation of Hazrat Usman bin Saeed (r.a.) that such letter
 
 Hazrat Usman bin Saeed (r.a.) in Baghdad
 
-After the martyrdom of Imam Hasan Askari (a.s.), the first representative of Imam-e-Zaman (a.t.f.s.) came to Baghdad from Samarrah by the order of Imam (a.s.). The reason being that the government vigilance and control in Samarrah was very strict and it had relatively ignored Baghdad. Samarrah was the capital of the Abbasi government. Motamid was appointed as ruler on 12th Rajab, 256 A.H. Till the end of his rule, Samarrah remained the capital. In 279 A.H., the capital was shifted to Baghdad . Till that time Baghdad was the Shiite center. The migration to Baghdad helped Hazrat Usman bin Saeed (r.a.) to keep in touch with the Shias residing in different places. In this way, his activities spread to different areas and were not restricted only to Baghdad . If he was in Samarrah or if Baghdad had been the capital of the Abbasides, then this would have been very difficult.
+After the martyrdom of Imam Hasan Askari (a.s.), the first representative of Imam-e-Zaman (a.t.f.s.) came to Baghdad from Samarrah by the order of Imam (a.s.). The reason being that the government vigilance and control in Samarrah was very strict and it had relatively ignored Baghdad. Samarrah was the capital of the Abbasi government. Motamid was appointed as ruler on 12th Rajab, 256 A.H. Till the end of his rule, Samarrah remained the capital. In 279 A.H., the capital was shifted to Baghdad. Till that time Baghdad was the Shiite center. The migration to Baghdad helped Hazrat Usman bin Saeed (r.a.) to keep in touch with the Shias residing in different places. In this way, his activities spread to different areas and were not restricted only to Baghdad. If he was in Samarrah or if Baghdad had been the capital of the Abbasides, then this would have been very difficult.
 
-(Pazoohashi Piramun , Pg. 130)
+(Pazoohashi Piramun, Pg. 130)
 
 His (r.a.) mode of operation
 
-Hazrat Usman bin Saeed (r.a.) had appointed some agents in Baghdad who used to coordinate with the other agents of Iraq and other areas. People met these agents in Baghdad , who collected the wealth and accepted the letters and queries from the Shias and forwarded them to Hazrat Usman bin Saeed (r.a.) and he in turn forwarded the same to Imam (a.s.), Hajiz bin Yazid-e-Washsha, Ahmed bin Ishaaq Ashari, Mohammad bin Ahmad bin Jafar Qattaan, Ahmad bin Ishaaq were initially the representatives of Imam Hasan Askari (a.s.) in Qum, Iran. After the martyrdom of Imam Hasan Askari (a.s.) they returned to Baghdad as helpers of Hazrat Usman bin Saeed (r.a.).
+Hazrat Usman bin Saeed (r.a.) had appointed some agents in Baghdad who used to coordinate with the other agents of Iraq and other areas. People met these agents in Baghdad, who collected the wealth and accepted the letters and queries from the Shias and forwarded them to Hazrat Usman bin Saeed (r.a.) and he in turn forwarded the same to Imam (a.s.), Hajiz bin Yazid-e-Washsha, Ahmed bin Ishaaq Ashari, Mohammad bin Ahmad bin Jafar Qattaan, Ahmad bin Ishaaq were initially the representatives of Imam Hasan Askari (a.s.) in Qum, Iran. After the martyrdom of Imam Hasan Askari (a.s.) they returned to Baghdad as helpers of Hazrat Usman bin Saeed (r.a.).
 
 Mohammad bin Ahmad Qattaan had taken up the work of selling clothes so that nobody could cast any doubt on his real purpose. The other agents delivered the letters and wealth wrapped in a cloth to him and he forwarded it to Hazrat Usman bin Saeed (r.a.). History is replete with such incidents wherein the special representatives employed such ingenious methods to protect Imam (a.t.f.s.) and his Shias. The wealth used to reach Imam (a.t.f.s.) without anybody learning about his (a.t.f.s.) actual abode.
 
