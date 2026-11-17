@@ -9,7 +9,7 @@ tags:
   - 'AL Mahdi In Quran'
   - 'AL Mahdi In Sunni'
   - 'Awaiting'
-  - 'Mahdi (A.J) in Sunnies Rated : 9 (out of 10) 1 users'
+  - 'Mahdi (A.J) in Sunnies Rated: 9 (out of 10) 1 users'
   - 'The Promised Mahdi (as)'
 date: '2013-06-03'
 updated: '2013-06-03'
