@@ -56,17 +56,17 @@ There are several verses supporting this point.
 
 Alif Lam Ra. (This is) a Book which We have revealed to you that you may bring forth men, by their Lord’s permission from utter darkness into light – to the way of the Mighty, the Praised One
 
-2. Surah Baqarah (2) : Verse 257
+2. Surah Baqarah (2): Verse 257
 
 Allah is the guardian of those who believe. He brings them out of the darkness into the light
 
-3. Surah Hajj (22) : Verse 41
+3. Surah Hajj (22): Verse 41
 
 Those who – should We establish them in the land – will keep up prayer and pay the poor-rate and enjoin good and forbid evil
 
 Establishment on earth means that believers shall be given dominion over this earth and a just government shall be established through them.
 
-4. Surah Noor (24) : Verse 55
+4. Surah Noor (24): Verse 55
 
 Allah has promised to those of you who believe and do good that He will most certainly make them rulers in the earth as He made rulers those before them, and that He will most certainly establish for them their religion which He has chosen for them, and that He will most certainly, after their fear, give them security in exchange; they shall serve Me, not associating aught with Me; and whoever is ungrateful after this, these it is who are the transgressors.
 
@@ -98,15 +98,15 @@ B. Enforcing Divine Laws especially Justice
 
 There are many Quranic verses regarding this:
 
-1. Surah Hadeed (57) : Verse 25
+1. Surah Hadeed (57): Verse 25
 
 Certainly We sent Our messengers with clear arguments, and sent down with them the Book and the balance that men may conduct themselves with equity.
 
-2. Surah A’raaf (7) : Verse 29
+2. Surah A’raaf (7): Verse 29
 
 Say: My Lord has enjoined justice…
 
-3. Surah A’raaf (7) : Verse 157
+3. Surah A’raaf (7): Verse 157
 
 Those who follow the Messenger-Prophet, the Ummi, whom they find written down with them in the Taurat and the Injeel (who) enjoins them good and forbids them evil, and makes lawful to them the good things and makes unlawful to them impure things, and removes from them their burden and the shackles which were upon them; so (as for) those who believe in him and honor him and help him, and follow the light which has been sent down with him, these it is that are the successful.
 
