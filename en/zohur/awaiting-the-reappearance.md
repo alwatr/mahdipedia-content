@@ -118,7 +118,7 @@ As regards the responsibilities of Shias in the times of occultation and for kno
 
 [^4]: Kamaluddin, p. 302.
 
-[^5]: Such word is not found in any lexicon or dictionary of English .literature. But we have coined this term for the sake of our convenience and brevity of disquisition in hand.
+[^5]: Such word is not found in any lexicon or dictionary of English.literature. But we have coined this term for the sake of our convenience and brevity of disquisition in hand.
 
 [^6]: Kamaluddin, chapter 33, tradition No. 54.
 
