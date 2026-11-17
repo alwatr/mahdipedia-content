@@ -66,7 +66,7 @@ Tradition One: Jabir (ar) says:
 
 The narrators of this tradition are Malik ibne Anas from Mohammed ibne Munkadar from Jabir. This series is mentioned by Abu Bakr Asqaaf in his `Favaaedul Akhbaar’.
 
-Doubt : There is a lot of disorder in the chain of narrators reaching Malik ibne Anas. And even Abu Bakr Asqaaf himself is accused by the Ahle Hadith of fabricating traditions.
+Doubt: There is a lot of disorder in the chain of narrators reaching Malik ibne Anas. And even Abu Bakr Asqaaf himself is accused by the Ahle Hadith of fabricating traditions.
 
 Tradition Two: Ibne Masud narrates from Holy Prophet, blessings and peace be upon him (and his progeny),
 
@@ -80,7 +80,7 @@ Note: Tirmizi and Abu Dawood bring this tradition with their own chain of narrat
 
 Dawood has maintained silence over this tradition. In his famous treatise Abu Dawood writes for whichever tradition I maintain silence, is self-explanatory. (Capable of acceptance as a proof).
 
-Doubt : Imam Ahmad says that he (Aasim) is a pious man, reciter of the Holy Quran, a good and honest person. However, A’amash has a better memory. (Here he is suggesting Aasim has a poor memory). In Ajali’s words, opinions about Aasim differ, that is he was considered weak (narrator).
+Doubt: Imam Ahmad says that he (Aasim) is a pious man, reciter of the Holy Quran, a good and honest person. However, A’amash has a better memory. (Here he is suggesting Aasim has a poor memory). In Ajali’s words, opinions about Aasim differ, that is he was considered weak (narrator).
 
 Mohammed ibne Saeed says Aasim was honest, yet he often made mistakes. Abdur Rehman ibne Abi Khatim says, “I told my father, Aasim is called to be reliable. My father commented, ‘He (Asim) is not of that calibre (of being reliable).” Ibne Haaliyah has discredited him and has stated, Aasim is of weak memory. Abu Hatim remarks, “According to me he is on the level of truthfulness (i.e. he is truthful), and is a good traditionalist (i.e. his traditions are acceptable), but is not a memoriser of traditions. Nesai has another opinion about him. Abu Jafar Aquili avers: Only he had poor memory. Darqutni opines, “His (Asim’s) memory was weak”. Yahya Al Qataan declares, “I have observed the person (the narrators) called Aasim who has poor memory. I have heard Sheba say, that Asim b. Abi Bakhud narrated a tradition for us, although people did not have a good opinion about him.”
 
