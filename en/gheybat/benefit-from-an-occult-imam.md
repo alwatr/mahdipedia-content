@@ -84,7 +84,7 @@ The above tradition has been quoted by Sheikh Sulayman bin Sheikh Ibrahim Qundoo
 
 Noteworthy it is that the question was posed to three infallibles and the reply from each of them was but one. Thereby ascertaining that the patron of them all is one – and He is Allah, Blessed and High be He.
 
-Imam (a.s.)’s occultation is likened to the hiding of the sun behind the clouds. Some of the points understood in this analogy are explained by Allamah Majlisi (r.a.) and are produced here under :
+Imam (a.s.)’s occultation is likened to the hiding of the sun behind the clouds. Some of the points understood in this analogy are explained by Allamah Majlisi (r.a.) and are produced here under:
 
 (1) Existence – Imam (a.s.) is the means for illuminating mankind with the light of guidance and knowledge.
 
@@ -116,7 +116,7 @@ The Almighty Allah has appointed the Pure Imams (a.s.) to guide the people throu
 
 Guidance of the people through the command of Allah is the most significant factor. Generally, everything in the world of creation comes into existence through a process. A child enters this world after a period of nine months in the womb of its mother. However, if Allah wills, this period can be reduced to moments and that is when Allah commands, “Be” and “It is”.
 
-The Almighty Allah has bestowed the Imams (a.s.) of “guiding with command”. They have the capacity to transform a period just by looking at it. Imam Hasan (a.s.) changed the Syrian foe into a humble friend, Imam Husain (a.s.) transformed Janabe Zohair Qain, Imam Mohammad Taqi (a.s.) changed the heart of the Syrian worshipper, etc. . Similarly, Hazrat Wali-e-Asr (a.s.) has brought profound changes in the lives of people like Hasan Iraqi. Apparent presence is not a pre-requisite for such trans­formations. If the person is deserving and is given the opportunity by Allah, he can benefit from the same. Today even we can obtain guidance from Imam (a.s.) but the necessary condition is that we must sacrifice our desires for his pleasure.
+The Almighty Allah has bestowed the Imams (a.s.) of “guiding with command”. They have the capacity to transform a period just by looking at it. Imam Hasan (a.s.) changed the Syrian foe into a humble friend, Imam Husain (a.s.) transformed Janabe Zohair Qain, Imam Mohammad Taqi (a.s.) changed the heart of the Syrian worshipper, etc.. Similarly, Hazrat Wali-e-Asr (a.s.) has brought profound changes in the lives of people like Hasan Iraqi. Apparent presence is not a pre-requisite for such trans­formations. If the person is deserving and is given the opportunity by Allah, he can benefit from the same. Today even we can obtain guidance from Imam (a.s.) but the necessary condition is that we must sacrifice our desires for his pleasure.
 
 Protection From Calamities
 
