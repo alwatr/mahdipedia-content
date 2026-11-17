@@ -48,7 +48,7 @@ The baseless claim of Ghulam Ahmed regarding Mahdaviyat could be briefly summari
 
 These things are not only against the holy Quran and reliable traditions but are also contrary to the proven beliefs of all the sects and branches of Ahle-Sunnat. These points shall be scrutinized in the following paragraphs and their hollowness will be explained in due course.
 
-1. IS HAZRAT MAHDI HIMSELF HAZRAT ISA (A.S) ?
+1. IS HAZRAT MAHDI HIMSELF HAZRAT ISA (A.S)?
 
 This belief regarding Hazrat Mahdi (A.S.) is absolutely against the unanimous consensus of all
 
