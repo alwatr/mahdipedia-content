@@ -1,7 +1,7 @@
 ---
 slug: the-condition-of-shias-before-reappearance
 title: 'The Condition of Shias before Reappearance'
-description: 'Our Master,the Chief of the Believers, Imam Ali Ibne Abi Talib (a.s.) says: “The world is a prison for the believers and heaven for the disbelievers.” The…'
+description: 'Our Master, the Chief of the Believers, Imam Ali Ibne Abi Talib (a.s.) says: “The world is a prison for the believers and heaven for the disbelievers.” The…'
 kind: article
 topic: gheybat
 tags:
@@ -23,7 +23,7 @@ legacyUrl: '/english/the-condition-of-shias-before-reappearance/'
 review: true
 ---
 
-Our Master,the Chief of the Believers, Imam Ali Ibne Abi Talib (a.s.) says: “The world is a prison for the believers and heaven for the disbelievers.”
+Our Master, the Chief of the Believers, Imam Ali Ibne Abi Talib (a.s.) says: “The world is a prison for the believers and heaven for the disbelievers.”
 
 The Holy Infallibles (a.s.), in their traditions and narration, have often condemned love for this material world. They (a.s.) have warned the believers, time and again with words like “the heart which is filled with the love for this world can never attain the love for the hereafter.” The reason being that man is so fascinated by looking at the adornments of this world that he forgets his True Creator, his objective and purpose of life. Therefore Imam Ali Ibne Abi Talib (a.s.) says: “One who is engrossed in this world, Long hopes have indeed deceived him, Remember death will be sudden, And grave is the real chest for (human) deeds.”
 
@@ -39,11 +39,11 @@ The narrator states that I heard Imam Ali (a.s.) saying: “What will be your
 
 condition when you will neither be with any Imam to guide you nor any ther visible lender. In this condition, you (O Shias) will show enmity towards each other.”
 
-(Kitab al-Ghaibah, Shaikh Tusi , pg. 207)
+(Kitab al-Ghaibah, Shaikh Tusi, pg. 207)
 
 Second Condition: Disputes
 
-During this time, the disputes will reach a magnitude that even the Shias and the be­lievers will not be spared. Ameerul Momineen Ali (a.s.) told Malik bin Zumrah : “O Malik bin Zumrah! What will be your condition when there would be terrible contro­versies among our Shias,” saying this Imam (a.s.) interlaced the fingers of both his hands to show how the Shias would be involved in disputes. The reality is such that it can be said that the Shias have begun to like controversies. Sometimes it seems that people eagerly await a topic to create a controversy and consequently confusion. The gravity of this un-soundness is such that people even fight and dispute in a serious matter like the mourning of Imam Husain (a.s.). Some people seem to have adopted the profession of creating di­visions taking pleasure to see the believers fight amongst themselves, in total contrast to the Divine Command: “And hold firmly to the rope of Allah (love of Ahlul Bait (a.s.)) together and do not be divided (amongst yourself).”
+During this time, the disputes will reach a magnitude that even the Shias and the be­lievers will not be spared. Ameerul Momineen Ali (a.s.) told Malik bin Zumrah: “O Malik bin Zumrah! What will be your condition when there would be terrible contro­versies among our Shias,” saying this Imam (a.s.) interlaced the fingers of both his hands to show how the Shias would be involved in disputes. The reality is such that it can be said that the Shias have begun to like controversies. Sometimes it seems that people eagerly await a topic to create a controversy and consequently confusion. The gravity of this un-soundness is such that people even fight and dispute in a serious matter like the mourning of Imam Husain (a.s.). Some people seem to have adopted the profession of creating di­visions taking pleasure to see the believers fight amongst themselves, in total contrast to the Divine Command: “And hold firmly to the rope of Allah (love of Ahlul Bait (a.s.)) together and do not be divided (amongst yourself).”
 
 (Surah Ale Imram, Verse 153)
 
