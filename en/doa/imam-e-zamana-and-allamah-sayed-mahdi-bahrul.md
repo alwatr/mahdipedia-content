@@ -1,6 +1,6 @@
 ---
 slug: imam-e-zamana-and-allamah-sayed-mahdi-bahrul
-title: 'Imam-e-Zamana (a.s.) and Allamah Sayed Mahdi Bahrul Uloom(r.a.)'
+title: 'Imam-e-Zamana (a.s.) and Allamah Sayed Mahdi Bahrul Uloom (r.a.)'
 description: 'Allah has always been more merciful to His servants. After their creation, they were not left on their own; rather He sent several guides for their…'
 kind: article
 topic: doa
@@ -72,7 +72,7 @@ Allamah Sayed Bahrul Uloom was a Shia scholar of prominent repute. Allamah’s c
 
 Mirza Abul Qasim Qummi (r.a.) writes that he used to accompany Allamah to the lectures of Agha Baqir Bahbahaani (r.a.). They both used to intensively debate and discuss the discourses of Aghae Bahbahaani. At the time, Allamah used to be benefited by Mirza’s knowledge and perspective. Then Mirza writes that he had to stay back in Iran and Allamah migrated to Iraq. In the meanwhile, Allamah acquired an enviable esteem among the scholars.
 
-Mirza writes, “I was stunned because I thought that Allamah was not capable of such an indepth knowledge and understanding. How did he manage to achieve this?”
+Mirza writes, “I was stunned because I thought that Allamah was not capable of such an in-depth knowledge and understanding. How did he manage to achieve this?”
 
 Later, Mirza traveled to Najaf and happened to meet Allamah. Mirza observed that the number of students who attended the lectures of Allamah was easily over 100. During the question and answer sessions, Mirza was further surprised to see Allamah’s command over theology and concepts, it was then that he conceded that Allamah truly deserves the title of ‘the pillar of knowledge’ and ‘Bahrul Uloom’ (the ocean of knowledge).
 
@@ -90,7 +90,7 @@ Mirza was taken aback at the revelation. Not able to hold back his curiosity, he
 
 The eminent scholars and researchers were pleasantly surprised by the divinely blessed knowledge of Bahrul Uloom which was directly bestowed on him by none other than Hazrat Imam-e-Zamana (a.t.f.s.). Allamah stayed in Mashad for seven years. Once he visited the martyred teacher Mirza Mahdi Isfahani (r.a.).
 
-The eminent teacher was left speechless and astonished with Allamah’s indepth knowledge and command over the subjects. It was then that he addressed him thus:
+The eminent teacher was left speechless and astonished with Allamah’s in-depth knowledge and command over the subjects. It was then that he addressed him thus:
 
 “Certainly thou art the ocean of knowledge”.
 
