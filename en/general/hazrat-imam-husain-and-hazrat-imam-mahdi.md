@@ -169,7 +169,7 @@ Then the narrator asked, ’What is the essence of this verse of Quran then:
 
 (Surah Anaam 164)
 
-Imam Reza(a.s.) replied:
+Imam Reza (a.s.) replied:
 
 “What Allah has said is true but these people were happy and proud over what their ancestors had done. If a person concurs with the one who performs the action then he too becomes a party in it. If someone is killed in the east and the people of west are in accord with it then in the eyes of Allah they too are partners in crime along with the killers. For that Qaem will execute the sons of the killers of Imam Husain (a.s.) on the premises that they were in pleased and satisfied with their predecessors.”
 
