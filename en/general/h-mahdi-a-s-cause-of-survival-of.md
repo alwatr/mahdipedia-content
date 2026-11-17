@@ -29,9 +29,9 @@ Nearly all Muslims are unanimous in their belief that the world has been created
 
 In another tradition, He says, “I have created you for Myself and the rest of the things for your sake. ”
 
-IMAM (A.S.) : THE SOUL OF UNIVERSE
+IMAM (A.S.): THE SOUL OF UNIVERSE
 
-Hazrat Ali (A.S.) in a couplet has compared man to the ‘Greatest Creation’. The oft-heard couplet is as follows :-
+Hazrat Ali (A.S.) in a couplet has compared man to the ‘Greatest Creation’. The oft-heard couplet is as follows:-
 
 “Do you think that you are an insignificant speck whereas a great world is concealed in you.” Man’s heart is the central point of the human body. Not a single organ is independent of it. Till the heart remains healthy, the body will be in order. However emaciated the latter may get, if the heart is alive, it will continue to radiate the warmth of life throughout. If, God forbid, a calamity befalls the heart or if it ceases to function or is detached from the body, it is reduced to a corpse.
 
