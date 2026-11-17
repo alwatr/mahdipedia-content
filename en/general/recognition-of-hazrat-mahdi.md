@@ -47,7 +47,7 @@ We would like to give the example of Shaitan here, when Allah order angels to pr
 
 Hence a first person who used his wisdom in the matter of worship to Allah was shaitan, pride for him has come in between him and Allah.
 
-Shaitan requested to Allah “O Allah you excuse me from the prostration before Adam and I will worship you in such a manner that neither the angel nor prophet would worship you” Allah replied ” I do not need your worship” .
+Shaitan requested to Allah “O Allah you excuse me from the prostration before Adam and I will worship you in such a manner that neither the angel nor prophet would worship you” Allah replied ” I do not need your worship”.
 
 I desire to be worshipped in the manner I like” Allah said to him get out from here my curse will be upon you till Qayamat.
 
@@ -61,9 +61,9 @@ then his worship is worthless On the contrary it will only serve as means of sep
 
 The criterion for belief is not only to attest the unity of Allah (Tauheed) and reject all partners for Him.
 
-but also to seek laws of religion from the door that has been declared by Him to be His door. And this “Door of Allah”. are His Messengers (a s.) and pure Imams (a s ) Hence. the belief in Nabuwat and Imamat is an absolute must to consummate the belief in Tauhid.
+but also to seek laws of religion from the door that has been declared by Him to be His door. And this “Door of Allah”. are His Messengers (a s.) and pure Imams (a s) Hence. the belief in Nabuwat and Imamat is an absolute must to consummate the belief in Tauhid.
 
-Imam Jafer Sadiq (a s ) says, If some one feels that he can deem the permissible as permissible and the prohibited as prohibited.
+Imam Jafer Sadiq (a s) says, If some one feels that he can deem the permissible as permissible and the prohibited as prohibited.
 
 without the recognition of Holy Prophet (s. a. w. s) then he has in fact not reckoned the permitted of Allah as permitted and prohibited of Allah an prohibited If a person performs prayers pays the poor-due.
 
@@ -83,17 +83,17 @@ The above mentioned tradition make it amply clear that the recognition of the re
 
 Another tradition from the Holy Prophet (s a w s) in this regard is worth. This tradition has been recorded by both Shia as well as Sunni scholars.
 
-The Prophet (s. a. w. s. ) warns “One who dies without recognizing the Imam of his time then his death is that of an ignorant person.”
+The Prophet (s. a. w. s.) warns “One who dies without recognizing the Imam of his time then his death is that of an ignorant person.”
 
 (Ynnnnbiul Mnwnddnh. Vol 39. pg. 137)
 
 In today’s era belief in the Imamat of Imam Mahdi (A.T.F.S) is the criterion for Allah’s worship. In fact belief in the Imamat of Hazrat Vali-e-Asr (may our lives be sacrificed for him) is the foundation of the entire edifice of our belief and worship.
 
-A doubt ( about his Imamat) equal to the measure of a grain, will take us away from religion and render our actions void.
+A doubt (about his Imamat) equal to the measure of a grain, will take us away from religion and render our actions void.
 
 In this context the following incident establishes the necessity and importance of recognizing the proof of Allah.
 
-There was a family in Bani Israel, Any member of this family who worshipped Allah for forty nights would have his prayers accepted. Their entreaties were never rejected by Allah, One person from this family worshipped Allah for forty nights, Thereafter he beseeched Allah for fulfillment of his desire, But his prayers were rejected, he presented himself before Hazrat Isa (a s.) and briefed him about his condition he requested Hazrat Isa (a.s. ) to implore Allah on his behalf Hazrat Isa (a.s. ) performed ablution and prayed Allah replied to him thus “0 Isa! This servant of mine has not approached Me through the door from which I should be approached.
+There was a family in Bani Israel, Any member of this family who worshipped Allah for forty nights would have his prayers accepted. Their entreaties were never rejected by Allah, One person from this family worshipped Allah for forty nights, Thereafter he beseeched Allah for fulfillment of his desire, But his prayers were rejected, he presented himself before Hazrat Isa (a s.) and briefed him about his condition he requested Hazrat Isa (a.s.) to implore Allah on his behalf Hazrat Isa (a.s.) performed ablution and prayed Allah replied to him thus “0 Isa! This servant of mine has not approached Me through the door from which I should be approached.
 
 While he is calling Me. he still has some doubts regarding you.
 
@@ -103,7 +103,7 @@ Hence, I will not accept his entreaties even if he calls Me in such a way that h
 
 One can well imagine what will be the consequence of disobedience Allah’s proof when the person from Bani Israel only doubting about him, he was believing on leadership of H.Essa only he has a little doubt about him (Allah’s proof) when a person beseeches Allah by disregarding His proof then he has rejected the means of approach appointed by Allah That is.
 
-he has chosen another mode of approaching Allah in grave disregard of the mode endorsed bv Him The Holy Prophet (s a w a ) has narrated the following Hadithe Qudsi from Jibrael (a.s. ) who in turn narrated it from the Allah the Almighty who declares “He one who considers Me worthy of worship considers Muhammad to be My worshipper and messenger reckons Ali ibne AbiTaalib to be My caliph.
+he has chosen another mode of approaching Allah in grave disregard of the mode endorsed bv Him The Holy Prophet (s a w a) has narrated the following Hadithe Qudsi from Jibrael (a.s.) who in turn narrated it from the Allah the Almighty who declares “He one who considers Me worthy of worship considers Muhammad to be My worshipper and messenger reckons Ali ibne AbiTaalib to be My caliph.
 
 deems the Imams in his lineage to be My proof then out of My mercy I will make him enter Paradise On the basis of My forgiveness I will deliver him from Hell and give him a place in My neighborhood I will ordain My mercy and grace a must for him I will fulfill My bounties over I will enumerate him among my special and sincere friends If he calls Me.
 
