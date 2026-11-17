@@ -1,6 +1,6 @@
 ---
 slug: question-discuss-the-false-claimants-and-pretenders-of
-title: 'Question :Discuss the false claimants and pretenders of Mahdaviyyat who have been recorded in history.'
+title: 'Question:Discuss the false claimants and pretenders of Mahdaviyyat who have been recorded in history.'
 description: 'Discuss the false claimants and pretenders of Mahdaviyyat who have been recorded in history. Reply: The preceding discussions indisputably establish the…'
 kind: article
 topic: mokhalefan
