@@ -37,7 +37,7 @@ We are thankful to Allah that we were born in a family where the love of Ahle Ba
 
 (2) The standard for perfect faith and glad tidings on the Day of Judgment is the love of Imam Zamana (a.t.f.s.). The Holy Prophet (s.a.w.a.) declared:
 
-‘(If one wishes) to have perfect faith and desires that his Islam is best, then he should love Hujjat – Sahebuz Zamana Al Muntazar (Imam-e-Zamana (a.t.f.s.)). Whoever loves them (Imams (a.s.)) and accepts their mastership, then I take guarantee from Allah, the High, for Paradise .’
+‘(If one wishes) to have perfect faith and desires that his Islam is best, then he should love Hujjat – Sahebuz Zamana Al Muntazar (Imam-e-Zamana (a.t.f.s.)). Whoever loves them (Imams (a.s.)) and accepts their mastership, then I take guarantee from Allah, the High, for Paradise.’
 
 (Behaarul Anwar, vol. 36, pg. 296)
 
