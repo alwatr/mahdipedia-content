@@ -1,6 +1,6 @@
 ---
 slug: question-what-is-the-proof-of-the-birth
-title: 'Question :What is the proof of the birth of Imam Mahdi (a.s.)? Whether any one has seen him after his birth?'
+title: 'Question:What is the proof of the birth of Imam Mahdi (a.s.)? Whether any one has seen him after his birth?'
 description: 'Reply: According to both the Shia as well as Sunni historians, Imam e Zamaana (a.t.f.s.) is already born. This is a well established historical fact. For…'
 kind: article
 topic: mokhalefan

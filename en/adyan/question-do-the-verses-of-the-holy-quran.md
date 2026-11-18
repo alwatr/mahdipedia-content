@@ -1,6 +1,6 @@
 ---
 slug: question-do-the-verses-of-the-holy-quran
-title: 'Question :Do the verses of the Holy Quran prove the existence and reappearance of Hazrat Mahdi (a.t.f.s.)?'
+title: 'Question:Do the verses of the Holy Quran prove the existence and reappearance of Hazrat Mahdi (a.t.f.s.)?'
 description: 'Do the verses of the Holy Quran prove the existence and reappearance of Hazrat Mahdi (a.t.f.s.)? Reply: First and foremost, it is not necessary that the…'
 kind: article
 topic: adyan

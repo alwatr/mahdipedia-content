@@ -56,13 +56,13 @@ The Almighty Allah says in the Holy Quran,
 
 “And from among you there should be a party who invite towards good and enjoin what is right and forbid the wrong, and they it is that shall be successful.”
 
-(Aale Imran : 103)
+(Aale Imran: 103)
 
 Allah attaches a lot of importance to these two traits and reiterates further,
 
 “You are the best of the nations raised up for (the benefit of) men; you enjoin what is right and forbid the wrong and believe in Allah.”
 
-(Aale Imran : 109)
+(Aale Imran: 109)
 
 The Holy Prophet (s.a.w.s.) considers enjoining good (Amr Bil Ma’roof) and forbidding evil (Nahi Anil Munkar) as the necessary duties of every Muslim. They are the distinctive qualities of a believer. The Messenger of Allah (s.a.w.s.) admonishes,
 
@@ -74,9 +74,9 @@ The Holy Quran exhorts the Muslims to always be prepared to face the enemies,
 
 “And prepare against them what force you can and horses tied at the frontier, to frighten thereby the enemy of Allah and your enemy….”
 
-(Anfaal : 60).
+(Anfaal: 60).
 
-All these verses and traditions are exhorting the Muslims to endeavour and struggle in the way of Allah. Then how can one censure Islam for encouraging backwardness? How can one accuse Islam of being indifferent to progress and advancement, thereby advocating complacency? Islam has never counseled the Muslims to leave everything upon Hazrat Mahdi (a.t..f.s). It has never given credence to being mute spectators in the face of adversity. And that is why it is not sufficient to simply declare, ” May Allah hasten the reappearance of Imam-e-Zamana (a.s.)”, and leave it at that !!
+All these verses and traditions are exhorting the Muslims to endeavour and struggle in the way of Allah. Then how can one censure Islam for encouraging backwardness? How can one accuse Islam of being indifferent to progress and advancement, thereby advocating complacency? Islam has never counseled the Muslims to leave everything upon Hazrat Mahdi (a.t..f.s). It has never given credence to being mute spectators in the face of adversity. And that is why it is not sufficient to simply declare, ” May Allah hasten the reappearance of Imam-e-Zamana (a.s.)”, and leave it at that!!
 
 These words will have little meaning if they do not spur the Muslims into action.
 

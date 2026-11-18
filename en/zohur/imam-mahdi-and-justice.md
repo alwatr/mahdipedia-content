@@ -114,7 +114,7 @@ Thus the tradition emphasizes that the earth will give out its underground treas
 
 that the principles of justice will be in com­plete force. Otherwise it is not possible to please every creature at one and the same time.
 
-A Glimpse Of Hazrat (a.s.)’s Time Allamah Majlisi (r.a.) has quoted from “Khisaal” of Sheikh Saduq (r.a.) that Ameerul Momineen Ali (a.s.) said, “The Almighty Allah initiated, the religion through us and, He will conclude it through us. He will provide every­thing through us and give life to whomsoever he likes (through us). He will remove the difficulties of the times through us and cause rainfall. Then do not be arrogant and do not move away from Allah. Our Qaim will rise and the rains will descend from the sky. And the earth will throw out the minerals. How submissive they would be to the hearts of Allah’s creatures. The wild animals will inhabit together without violence. Even if a woman travels alone from Iraq to Syria , she will be safe enough to halt at any place. She may carry her jewelry over her head but none will dare to loot her. (There will be no robberies). No wild animal will attack her. She will have no fear of them.”
+A Glimpse Of Hazrat (a.s.)’s Time Allamah Majlisi (r.a.) has quoted from “Khisaal” of Sheikh Saduq (r.a.) that Ameerul Momineen Ali (a.s.) said, “The Almighty Allah initiated, the religion through us and, He will conclude it through us. He will provide every­thing through us and give life to whomsoever he likes (through us). He will remove the difficulties of the times through us and cause rainfall. Then do not be arrogant and do not move away from Allah. Our Qaim will rise and the rains will descend from the sky. And the earth will throw out the minerals. How submissive they would be to the hearts of Allah’s creatures. The wild animals will inhabit together without violence. Even if a woman travels alone from Iraq to Syria, she will be safe enough to halt at any place. She may carry her jewelry over her head but none will dare to loot her. (There will be no robberies). No wild animal will attack her. She will have no fear of them.”
 
 (Behaarul Anwaar, vol. 52, pg. 316)
 
@@ -122,7 +122,7 @@ Based on these principles of justice and equity the following developments shall
 
 Complete eradication of difficulties Increase in bounties and general pros­perity Hearts free from malice and enmity Women can travel alone in perfect safety. There will be no robberies and thefts.
 
-The Holy Prophet (s.a.w.a.) has repeated this Divine Promise on numerous occasions. Con­sequently,most of the scholars have recorded the following tradition among the reports concerning the advent of Mahdi (a.s.).
+The Holy Prophet (s.a.w.a.) has repeated this Divine Promise on numerous occasions. Con­sequently, most of the scholars have recorded the following tradition among the reports concerning the advent of Mahdi (a.s.).
 
 “He will fill the earth with justice and equity like it would be replete with injustice and oppression.”
 

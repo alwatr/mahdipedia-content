@@ -153,7 +153,7 @@ Each and every word of this tradition is thought-provoking. It commands our rapt
 
 7) The series of Imamat will continue in the progeny of Imam Husain (a.s.).
 
-8 ) Such a divine gift on the occasion of Imam Husain’s (a.s.) birth highlights his noble position.
+8) Such a divine gift on the occasion of Imam Husain’s (a.s.) birth highlights his noble position.
 
 9) The tradition mentions the perfect chain of guidance.
 
@@ -277,7 +277,7 @@ The avenger of the blood of Imam Husain (a.s.)
 
 The martyrdom of Imam Husain (a.s.) is such a distressing event that it has left the whole universe in a state of gloom and misery. Some of the venerable scholars have termed Ziarat-e-Ashoora to be Hadith Qudsi. This sacred Ziarat has the following statements in it: ‘O Abu Abdillah! Certainly the calamity that struck us is too colossal and unbearable. Your afflictions are too excruciating for us and for the entire Islamic nation. This distressing pain is devastating for the skies and all its inhabitants.’ (Ziarat-e-Ashoora)
 
-In another Ziarat it is said: ‘I bear witness that your sacred blood was placed in heaven which shook the shadow of Arsh. The entire creation grieved and wept on it-all the seven heavens wept as also the seven layers of earth. And all those who are in between the heavens and the earth wept .’
+In another Ziarat it is said: ‘I bear witness that your sacred blood was placed in heaven which shook the shadow of Arsh. The entire creation grieved and wept on it-all the seven heavens wept as also the seven layers of earth. And all those who are in between the heavens and the earth wept.’
 
 (Mafatihul Jenaan, pg. 423)
 

@@ -40,7 +40,7 @@ A similar exegesis is also narrated from Imam Sadiq (a.s.), which is mentioned i
 
 (Tafseer al-Meezan, by Allamah Tabatabai, pg. 201)
 
-There is no doubt that Allah, the Blessed and the High desires that His creatures on the earth should be in touch with His Proof and their Imam in every moment of their life. History is a witness to the fact that in the past, people failed to establish contact with Imam of their time. As a result, they could not acquire his recognition and consequently, refused to accept the caliphate of Hazrat Ali (a.s.), threw arrows on the bier of Imam Hasan (a.s.) and brutally killed Imam Husain (a.s.) in Karbala .
+There is no doubt that Allah, the Blessed and the High desires that His creatures on the earth should be in touch with His Proof and their Imam in every moment of their life. History is a witness to the fact that in the past, people failed to establish contact with Imam of their time. As a result, they could not acquire his recognition and consequently, refused to accept the caliphate of Hazrat Ali (a.s.), threw arrows on the bier of Imam Hasan (a.s.) and brutally killed Imam Husain (a.s.) in Karbala.
 
 Each and every Imam (a.s.) was tortured and oppressed. The light of guidance did not reach the hearts of the people. As time went by, the situation turned for the worse. Today Muslims are living in a situation where there is no recognition of Imam and the true Islam. In fact, in the name of religion and justice, irreligiousness, injustice and oppression is widespread in Islamic society. Islam, which had come to enliven the people, has itself become lifeless.
 

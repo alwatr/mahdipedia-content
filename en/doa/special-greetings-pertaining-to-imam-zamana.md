@@ -25,7 +25,7 @@ review: true
 
 Allah – The One sans partner – is the Creator of all creatures. His Being is Unique and Needless. He is the One before whom every particle of the universe is subservient and indigent. From eternity, He is Generous upon the world of creation. He showers His bounties upon His creatures, morning and evening. He does not withhold the flood of His bounties. His is the creation, His are the bounties. He is the fountainhead of all endowments. He is the One Who adorns the dawn. He is the Provider of light to the day and the shade in the blistering afternoon heat. He owns everything. Then why is He displeased with His servants? Why does He – the Blessed and Merciful One – repeatedly warn His servants about the refutation of His bounties?
 
-There is reason for this. The moot cause is that the Creator bestowed intellect and reasoning upon his creation, the children of Adam (a.s.). Then He sent His apostles, prophets and their successors for the propagation of knowledge and shariah. He thus illuminated the paths of guidance among mankind. Subsequently, He gave them a choice – Be among the thankful ones or be among those who deny the bounties. His anger is directed to the second group, to those who refute His bounties. Hence the tone of the verses reflects Majesty and Dominion. The verse thunders: Which then of the bounties of your Lord will you deny? 
+There is reason for this. The moot cause is that the Creator bestowed intellect and reasoning upon his creation, the children of Adam (a.s.). Then He sent His apostles, prophets and their successors for the propagation of knowledge and shariah. He thus illuminated the paths of guidance among mankind. Subsequently, He gave them a choice – Be among the thankful ones or be among those who deny the bounties. His anger is directed to the second group, to those who refute His bounties. Hence the tone of the verses reflects Majesty and Dominion. The verse thunders: Which then of the bounties of your Lord will you deny?
 
 (Surah Rahman)
 
@@ -35,7 +35,7 @@ Now, it is incumbent on us that we constantly recite salawaat upon that represen
 
 We will also discuss the salawaat of Abu Zarraab-e-Isfahani for Imam Zamana (a.s.) in the forthcoming pages.
 
-The literal meaning of salawaat is “deep concentration”. Allama Tabatabai (r.a.) explains in his exegesis Al-Mizan. (Surah Ahzab: 43) that the complete and comprehensive meaning of salawaat can only be gleaned from its context. Normally, it means the “attentiveness of the heart towards somebody” but the meaning differs with the change of context. Some have opined that salawaat with reference to Allah means Mercy while the salawaat of the angels is an intense prayer for forgiveness and the salawaat of a believer is (just) a prayer. So, we can apply the meaning of salawaat as prayer in context to the angels and believers and the literal meaning also corroborates this. 
+The literal meaning of salawaat is “deep concentration”. Allama Tabatabai (r.a.) explains in his exegesis Al-Mizan. (Surah Ahzab: 43) that the complete and comprehensive meaning of salawaat can only be gleaned from its context. Normally, it means the “attentiveness of the heart towards somebody” but the meaning differs with the change of context. Some have opined that salawaat with reference to Allah means Mercy while the salawaat of the angels is an intense prayer for forgiveness and the salawaat of a believer is (just) a prayer. So, we can apply the meaning of salawaat as prayer in context to the angels and believers and the literal meaning also corroborates this.
 
 The author of Majma’ul Bayaan has mentioned the meaning of salawaat as Zikr (remembrance). While Al-Mufradaat of Raaghib states that most dictionaries have called it as prayer, commendation or praise. He has quoted the narration of the Holy Prophet (s.a.w.a.) under Sura Baqarah – ‘when someone calls for food then accept it. And if you are fasting, then pray () for him’. The salawaat has been used in Qur’an in the meaning of prayer. It is mentioned in Sura Tauba, verse 103:
 
@@ -45,7 +45,7 @@ The meaning of salawaat in Sura Ahzaab, verse 43 is in the meaning of “attenti
 
 He it is Who has His attention () on you, and (so do) His angels, that He may bring you forth out of utter darkness into the light And He is Merciful to the believers
 
-This verse clarifies the fact that attention of Allah is His mercy. 
+This verse clarifies the fact that attention of Allah is His mercy.
 
 Allah says in Sura Ahzaab, verse 55:
 
@@ -65,13 +65,13 @@ There is one more type of salawaat which has two facets- Transmitted and non-tra
 
 O Allah! Send your blessings, mercy and peace upon the twelfth Imam. The upright, the awaited, the scholar, the powerful, the successor of the choicest of the chosen, the inheritor of the might of Murtuza (a.s.); the successor of the impeccable morals of Hasan (a.s.); the inheritor of the determination of Husain (a.s.), the worship of Ali Ibn Husain (a.s.), the sciences of the of Baqir (a.s.)….. The one who gains precedence upon mankind through nobility and excellence. The loved Imam, the promised manifestation. … and the Proof, the Upright, the awaited one for the time of reappearance.”
 
-I have only quoted a few lines for the sake of brevity. This is how they had penned salawaat for the Infallible Imams (a.s.). 
+I have only quoted a few lines for the sake of brevity. This is how they had penned salawaat for the Infallible Imams (a.s.).
 
 Salawaat of Abu Zarraab Isfahani
 
 Sayyed Ibn Tawoos says that salawaat of Zurrab Isfahani is that salawaat upon Muhammad and his progeny (s.a.w.a.) which has been narrated from Imam Zamana (a.s.). This is an invaluable salawaat which should not be abandoned on Friday even if due to some reason the other prayers cannot be recited on that day, since it is a divine secret of which Allah Himself has made us aware.
 
-Sayyed ibn Tawoos says that ‘My forefather Abu Ja’far Toosi (r.a.) narrating from reliable sources quotes 
+Sayyed ibn Tawoos says that ‘My forefather Abu Ja’far Toosi (r.a.) narrating from reliable sources quotes
 
 “Ya’qub Ibn Yusuf Zarraab Isfahani related to me while he was returning from Isfahan.
 
@@ -79,19 +79,19 @@ Sayyed ibn Tawoos says that ‘My forefather Abu Ja’far Toosi (r.a.) narrating
 
 ‘I had a copy of the tauqee’ issued to Qasim Ibn al-Alaa in Azerbaijan. I requested her to show this to someone who was familiar with the tauqee’ of Imam (a.s.). She said, “Give it to me. Surely, I can recognize it.” She saw the tauqee’ and I suspected that she may be the right person to identify the tauqee’. However she said, “I am unable to read it at this place.” So she took it to her room. Then she came down and said “This tauqee’ is authentic and correct.” It was written in the tauqee’, “I give you a glad tiding which I have not given anybody else before” Then she inquired, “He (a.s.) has asked you that when you send salawaat upon the Prophet (s.a.w.a.) what do you recite?” I replied:
 
-“O Allah! Send Your Blessings upon Muhammad & his progeny and shower Your Munificence upon Muhammad & his progeny like You bestowed Your Blessings, Munificence & Mercy upon Ibrahim and his progeny. Certainly You are Most commendable & praiseworthy. 
+“O Allah! Send Your Blessings upon Muhammad & his progeny and shower Your Munificence upon Muhammad & his progeny like You bestowed Your Blessings, Munificence & Mercy upon Ibrahim and his progeny. Certainly You are Most commendable & praiseworthy.
 
 On hearing this she said, “Do not send salawaat like this. Rather, when you send salawaat on them then take the name of each one of them individually”. I replied: “Okay”.
 
 The next day, she brought a small book with her and said, “He (a.s.) has instructed you, that when you send salawaat upon the Prophet (s.a.w.a.) then send salawaat upon him and his successors according to this copy. I took it from her and acted upon it. I observed on a number of nights that he (a.s.) descended from the room and light of the lamp was still constant. I used to open the door and follow the light but would never find anyone but would see the light bowing down in prostration. I saw groups of men from other cities come to the house of this old lady and give some letters. The old lady too would give them similar letters. They would converse with her but I could not understand their discussions. I saw a group from them when I met them on my way back to Baghdad (after Hajj). The diary that I received from Hazrat (a.t.f.s) contained the following salawaat:
 
-In the name of Allah, the Most Beneficient & the Most Merciful 
+In the name of Allah, the Most Beneficient & the Most Merciful
 
-O Allah! Bless Muhammad (s.a.w.a), the chief of the messengers, the seal of the prophets (a.s.), the proof of the Lord of the worlds, the chosen one in the covenant (meesaq) ……. the strong rope and the straight path. And bestow Your Blessings on Your friend, the guardians of Your covenant and the Imams (a.s.) from his descendants; prolong their lives and increase their age; make them reach their highest expectations – in the religion, this world and the Hereafter. Surely You possess power over all things 
+O Allah! Bless Muhammad (s.a.w.a), the chief of the messengers, the seal of the prophets (a.s.), the proof of the Lord of the worlds, the chosen one in the covenant (meesaq) ……. the strong rope and the straight path. And bestow Your Blessings on Your friend, the guardians of Your covenant and the Imams (a.s.) from his descendants; prolong their lives and increase their age; make them reach their highest expectations – in the religion, this world and the Hereafter. Surely You possess power over all things
 
-This salawaat has been narrated in authentic books through varied chains of authority and its recitation has been greatly emphasized. 
+This salawaat has been narrated in authentic books through varied chains of authority and its recitation has been greatly emphasized.
 
-Dear readers, we have related the entire incident to gauge the importance of this salawaat and get proximity to Holy Prophet Mohammad (s.a.w.a.) and his progeny (a.s.) in general and Imam Zamana (a.s.) in particular. Aameen. We cannot estimate the spiritual impact of the sentences of this salawaat. It would have been befitting to present a brief exegesis and explanation of the same, but fearing prolongation, we will discuss it in the future. 
+Dear readers, we have related the entire incident to gauge the importance of this salawaat and get proximity to Holy Prophet Mohammad (s.a.w.a.) and his progeny (a.s.) in general and Imam Zamana (a.s.) in particular. Aameen. We cannot estimate the spiritual impact of the sentences of this salawaat. It would have been befitting to present a brief exegesis and explanation of the same, but fearing prolongation, we will discuss it in the future.
 
 The Excellence of Salawaat:
 
@@ -127,7 +127,7 @@ O Ali! Whosoever sends salawaat on me during the day, my intercession is obligat
 
 (Jaame’ul Akhbaar, ch. 28, p. 67, H. 5)
 
-The benefits of salawaat have been mentioned in this lengthy tradition. 
+The benefits of salawaat have been mentioned in this lengthy tradition.
 
 Imam Sadiq (a.s.) said:
 

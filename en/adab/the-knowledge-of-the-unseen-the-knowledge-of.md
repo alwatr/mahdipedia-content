@@ -71,7 +71,7 @@ The Essence of the Book is the withheld knowledge (Ghayb) which is only possesse
 
 Now, let us look at the following verse: “He possesses the Ghayb and He does not discloses His Ghayb to anyone except to such a Messenger as He is well-pleased with.” (Quran 72:26-27).
 
-عالم الغيب فلا يظهر على غيبه احداً , الا من ارتضى من رسول
+عالم الغيب فلا يظهر على غيبه احداً, الا من ارتضى من رسول
 
 From the above verse, it is evident that although Allah alone possesses the withheld knowledge (Ghayb), but He may disclose a news from it to Prophet Muhammad (PBUH&HF). On the other hand, Prophet Muhammad transferred whatever he was reached from the news of “Ghayb” to those who qualified, as the following verse testifies: “And he (Muhammad) is not niggardly the Knowledge of the Unseen.”
 

@@ -45,11 +45,11 @@ Ans: Piety and abstinence. I pledge for the salvation of the one who does not de
 
 Q.4. What are our responsibilities in your occultation?
 
-Ans : Perform those actions which bring you closer to our love and affection and refrain from all those actions that become the cause of our displeasure and dissatisfaction. (Pg.192)
+Ans: Perform those actions which bring you closer to our love and affection and refrain from all those actions that become the cause of our displeasure and dissatisfaction. (Pg.192)
 
 Q5. How is it possible to meet you?
 
-Ans : If Ans: If our Shias (may Allah grant them the taufeeq of obedience) had been united in fulfilling the pledge, then certainly there would have been no delay in our meeting and they would have been graced with this opportunity several times. However, their actions are most unbecoming of Shias, and have kept them away from us.(Pg. 200)
+Ans: If Ans: If our Shias (may Allah grant them the taufeeq of obedience) had been united in fulfilling the pledge, then certainly there would have been no delay in our meeting and they would have been graced with this opportunity several times. However, their actions are most unbecoming of Shias, and have kept them away from us.(Pg. 200)
 
 Q.6. How can we disgrace and humiliate Shaitan?
 
@@ -57,11 +57,11 @@ Ans. Reciting namaz on the dot of time at its very outset (Awwal-e-Waqt) is a ca
 
 Q.7. Can a person utilize for his personal use a thing which has been endowed (Waqf) for you
 
-Ans : If the thing has been handed over to us then the person has no right over it -whether he needs that thing or not. (Pg. 200)
+Ans: If the thing has been handed over to us then the person has no right over it -whether he needs that thing or not. (Pg. 200)
 
 Q.8. What do you have to say about those people who use your things for their own personal benefits?
 
-Ans : To use someone’s belongings without his permission is prohibited. Hence the one who considers our money as permissible and usurps, has actually filling his stomach with fire and will surely be thrown in Hell. (Pg. 200)
+Ans: To use someone’s belongings without his permission is prohibited. Hence the one who considers our money as permissible and usurps, has actually filling his stomach with fire and will surely be thrown in Hell. (Pg. 200)
 
 Q.9. Can we recite namaz before a drawing or fire?
 
@@ -69,23 +69,23 @@ Ans: If a person is not from the children of idol worshippers or fire worshipper
 
 Q.1O.Which chapter (surah) is recommended for recitation in namaz?
 
-Ans : One who does not recite the chapter of Qadr (surahe “Inna anzalna’~ in his namaz then his namaz is not accepted. And the one who does not recite the chapter of Tauheed (surahe “Quillo wallah’~ in his namaz, then his namaz is not pure.
+Ans: One who does not recite the chapter of Qadr (surahe “Inna anzalna’~ in his namaz then his namaz is not accepted. And the one who does not recite the chapter of Tauheed (surahe “Quillo wallah’~ in his namaz, then his namaz is not pure.
 
 Q.11. But traditions also speak about the rewards of reciting other surahs. For instance, it has been reported from traditions that the one who recites surahe “Homazah” will get the reward equal to this world?
 
-Ans : There can be no disputing that he will get the reward which is mentioned in the traditions (for reciting surahe “Homazah”). But if a person forsakes any surah and recites surahe Qadr and surahe Tauheed, then not only will he get the reward of reciting these two surahs but will also get the reward of the surah which he has left (in order to recite these two surahs). Of course he can recite any other surah that he wishes, but then he will have abandoned something that carries a lot of reward. (Pg. 214-216)
+Ans: There can be no disputing that he will get the reward which is mentioned in the traditions (for reciting surahe “Homazah”). But if a person forsakes any surah and recites surahe Qadr and surahe Tauheed, then not only will he get the reward of reciting these two surahs but will also get the reward of the surah which he has left (in order to recite these two surahs). Of course he can recite any other surah that he wishes, but then he will have abandoned something that carries a lot of reward. (Pg. 214-216)
 
 Q.12.Can we eat and drink or do business with a person who earns through illegal means
 
-Ans : If the person has some other source of livelihood also, then it is not prohibited to eat and drink or do business with him. But if he has no other source of livelihood save his illegal income, then it is prohibited to interact with such a person. (Pg. 226)
+Ans: If the person has some other source of livelihood also, then it is not prohibited to eat and drink or do business with him. But if he has no other source of livelihood save his illegal income, then it is prohibited to interact with such a person. (Pg. 226)
 
 Q.13.How can a person focus his attention towards Allah before starting his namaz?
 
-Ans :It is recommended (mustahab) to recite the following in order to concentrate during namaz. Then he should Then he should say “Bismillah hir Rahman nir Raheem” and start his prayers. (pg. 230)
+Ans:It is recommended (mustahab) to recite the following in order to concentrate during namaz. Then he should Then he should say “Bismillah hir Rahman nir Raheem” and start his prayers. (pg. 230)
 
 Q.14.What is the order regarding the performance of “Sajdah-e-Shukr” after completing a wajib namaz?
 
-Ans : Sajdah-e-Shukr” is among the highly recommended acts and is very much emphasised. Just as an obligatory (wajib) act is superior to a recommended (mustahhab) act, in much the same way, the “Sajdah-e-Shukr” which is performed after a obligatory namaz is superior to the one which is performed after a recommended namaz.(pg. 232-234)
+Ans: Sajdah-e-Shukr” is among the highly recommended acts and is very much emphasised. Just as an obligatory (wajib) act is superior to a recommended (mustahhab) act, in much the same way, the “Sajdah-e-Shukr” which is performed after a obligatory namaz is superior to the one which is performed after a recommended namaz.(pg. 232-234)
 
 Q.15.Will the believers give birth to children in Paradise?
 
@@ -97,27 +97,27 @@ Ans Yes it can be kept in the grave. And by the command of Allah, the threadsof 
 
 Q.17.Can a rosary (Tasbeeh) be made of Khak-e-Shifa?
 
-Ans : There is no adornment for a Tasbeeh more excellent than Khak-e-Shifa. Among the virtues of a tasbeeh made of Khak-e-Shifa is that often a person is lost in his thoughts and just turns the beads of the tasbeeh in his hands, yet he will get the complete reward of reciting that tasbeeh. (pg. 244)
+Ans: There is no adornment for a Tasbeeh more excellent than Khak-e-Shifa. Among the virtues of a tasbeeh made of Khak-e-Shifa is that often a person is lost in his thoughts and just turns the beads of the tasbeeh in his hands, yet he will get the complete reward of reciting that tasbeeh. (pg. 244)
 
 Q.18.Can we prostrate on Khak-eShifa?
 
-Ans : It is permitted to prostrate on Khak-e-Shifa. In fact, it is a source of distinction. (pg. 244)
+Ans: It is permitted to prostrate on Khak-e-Shifa. In fact, it is a source of distinction. (pg. 244)
 
-Q.19.Can we prostrate on the graves of Imams(a.s.)?
+Q.19.Can we prostrate on the graves of Imams (a.s.)?
 
-Ans : You should not prostrate on the graves. However, you can touch your face to the grave. And there is also no harm in performing namaz in front of the grave. (pg. 246)
+Ans: You should not prostrate on the graves. However, you can touch your face to the grave. And there is also no harm in performing namaz in front of the grave. (pg. 246)
 
-Q.20.What do you have to say about those people who exaggerate the position of Ahle Bait(a.s.) and ascribe them with Divinity (Godhood)?
+Q.20.What do you have to say about those people who exaggerate the position of Ahle Bait (a.s.) and ascribe them with Divinity (Godhood)?
 
-Ans :1 and all my ancestors, right from Adam (a.s.) till Mohammad Mustafa (s.a.w.s) are the servants ofAllah. Actually, we are aggrieved by those Shias who are ignorant and whose faith is not even equal to the wing of a mosquito. We detach ourselves from all those people who associate us with Allah. (pg. 264-266)
+Ans:1 and all my ancestors, right from Adam (a.s.) till Mohammad Mustafa (s.a.w.s) are the servants ofAllah. Actually, we are aggrieved by those Shias who are ignorant and whose faith is not even equal to the wing of a mosquito. We detach ourselves from all those people who associate us with Allah. (pg. 264-266)
 
 Q.21. What do you have to say about people like Shalmagani, Sharaee, Nomairee and Abu Khatab who had falsely claimed the status of being your special deputies?
 
-Ans : We announce our disapproval of them and we distance ourselves from such people and also from their followers. We also send our curse on them. (pg. 282)
+Ans: We announce our disapproval of them and we distance ourselves from such people and also from their followers. We also send our curse on them. (pg. 282)
 
 Q.22. What will be the condition ofthe world and the Muslims before your reappearance?
 
-Ans : Before our reappearance, the hearts of the people will become hard and full of injustice and inequality .(pg. 282)
+Ans: Before our reappearance, the hearts of the people will become hard and full of injustice and inequality.(pg. 282)
 
 Q23. Have you appointed anyone as your special deputy in Ghaibat-e Kubra?
 
@@ -151,38 +151,38 @@ Ans. We accept your wealth only with this intention that you should be purified.
 
 Q.30.Can the people derive benefit from you while you are in occultation?
 
-Ans : The people can derive benefit from me in my occultation just as they derive benefit from the sun when it is concealed behind the clouds.(pg. 290)
+Ans: The people can derive benefit from me in my occultation just as they derive benefit from the sun when it is concealed behind the clouds.(pg. 290)
 
 Q.31.What are the characteristics and the status of Allah’s guides?
 
-Ans : Allah has protected them from all kinds of sins and purified them from all kinds of defects and has made them clean from all sorts of vices. He has appointed them as the treasurers of His knowledge and the custodians of His wisdom. He has made them the focal point of His secrets and has strengthened them with proofs. If all this had not been there then every person would have claimed (this position) and it would not have been possible to discern truth from falsehood. And knowledge would not be distinct from ignorance. (pg. 296)
+Ans: Allah has protected them from all kinds of sins and purified them from all kinds of defects and has made them clean from all sorts of vices. He has appointed them as the treasurers of His knowledge and the custodians of His wisdom. He has made them the focal point of His secrets and has strengthened them with proofs. If all this had not been there then every person would have claimed (this position) and it would not have been possible to discern truth from falsehood. And knowledge would not be distinct from ignorance. (pg. 296)
 
-Q.32.What is the reason for the sending of prophets (a.s.) and Imams (as )?
+Q.32.What is the reason for the sending of prophets (a.s.) and Imams (as)?
 
 Ans. Allah has sent the Prophets (a.s.) and Imams (a.s.) so that they should command the people towards His obedience and refrain them from rebelliousness, and inform the people about Allah and about the tenets of His religion.(pg. 294)
 
 Q.33. How should we test and disgrace those people who falsely claim the status of Imamat?
 
-Ans : Ask them about the Quran and the practical tenets (Ahka~tm). Inquire from them about the laws governing namaz. You yourself will be able to gauge their authenticity.(pg. 298)
+Ans: Ask them about the Quran and the practical tenets (Ahka~tm). Inquire from them about the laws governing namaz. You yourself will be able to gauge their authenticity.(pg. 298)
 
 Q.34. At any point of time can the earth ever remain devoid of the Proof of Allah (Huji at)?
 
-Ans : The earth can never remain devoid of the “Hujjat” ofAllah – whether he is apparent and manifest or concealed and hidden.(pg. 314)
+Ans: The earth can never remain devoid of the “Hujjat” ofAllah – whether he is apparent and manifest or concealed and hidden.(pg. 314)
 
 Q.35.Who is the Imam after Imam Hasan Askari (a.s.)?
 
-Ans : Imam Hasan Askari (a.s.) has appointed that person as his successor and vicegerent whom Allah has kept in occultation. (i.e. he only is your Imam) (pg. 314)
+Ans: Imam Hasan Askari (a.s.) has appointed that person as his successor and vicegerent whom Allah has kept in occultation. (i.e. he only is your Imam) (pg. 314)
 
-Q.36. Are the Imams(a.s.) the creators as well as the sustainers (of the people)?
+Q.36. Are the Imams (a.s.) the creators as well as the sustainers (of the people)?
 
-Ans : Imams (a.s.) pray to Allah and He creates and gives sustenance because of their supplications. Allah accepts their invocations and exalts their rank and status.(pg. 228)
+Ans: Imams (a.s.) pray to Allah and He creates and gives sustenance because of their supplications. Allah accepts their invocations and exalts their rank and status.(pg. 228)
 
 Q.37.Till when can a person pray for a son?
 
-Ans : A person should pray for a son till the fourth month of pregnancy.(pg. 386-598)\
+Ans: A person should pray for a son till the fourth month of pregnancy.(pg. 386-598)\
 Q.38.Can a person take your name in general public meetings or gatherings?
 
-Ans : If you publicise our name, they (the enemies) will make it widespread. If you tell them about our place they will try to reach there. (pg. 440)
+Ans: If you publicise our name, they (the enemies) will make it widespread. If you tell them about our place they will try to reach there. (pg. 440)
 
 The one who takes our name in an assembly is accursed.(pg. 442)
 
@@ -194,11 +194,11 @@ Ans. Have you not read the saying of Allah in which He says, ‘And We made betw
 
 Q.40. To whom does Allah give guidance?
 
-Ans : The one who desires guidance gets it from Allah. The one who endeavors for it, is bestowed with it. (pg. 544)
+Ans: The one who desires guidance gets it from Allah. The one who endeavors for it, is bestowed with it. (pg. 544)
 
 Q.41. Is it proper to search for you?
 
-Ans : The one who struggles and strives too much for searching me will (in fact) direct the enemies towards me. And the one who guides the enemies towards me has endangered my life. And the one who puts my life in danger is a polytheist. (pg. 548)
+Ans: The one who struggles and strives too much for searching me will (in fact) direct the enemies towards me. And the one who guides the enemies towards me has endangered my life. And the one who puts my life in danger is a polytheist. (pg. 548)
 
 Q.42. What are the responsibilities of the scholars (Ulema) towards the people?
 

@@ -71,7 +71,7 @@ Holy Prophet Muhammad. categorically mentioned in many Hadith that he is the Las
 
 ·The Holy Prophet observed: “I am Muhammad, I am Ahmad, I am the effacer and infidelity shall be erased through me; I am the assembler. People shall be assembled on Doomsday after my time. (In other words Doom is my only successor.) And I am the last in the sense that no prophet shall succeed me.” (Bukhari and Muslim, Kitab-ul-Fada’il, Bab: Asmaun-Nabi; Tirmidhi, Kitab-ul- Adab, Bab: Asma-un-Nabi; Muatta’, Kitab-u-Asma in-Nabi, Al- Mustadrak Hakim, Kitab-ut-Tarikh, Bab: Asma-un-Nabi.)
 
-·The Prophet of Allah observed: “God Almighty hath sent unto the world no apostle who did not warn his people about the appearance of Dajjal (Anti-Christ, but Dajjal did not appear in their time). I am the last in the line of Prophets and ye are the last community of believers. Without doubt,then, Dajjal shall appear from amongst ye”. (Ibn Majah, Kitabul-fitan, bab:Dajjal).
+·The Prophet of Allah observed: “God Almighty hath sent unto the world no apostle who did not warn his people about the appearance of Dajjal (Anti-Christ, but Dajjal did not appear in their time). I am the last in the line of Prophets and ye are the last community of believers. Without doubt, then, Dajjal shall appear from amongst ye”. (Ibn Majah, Kitabul-fitan, bab:Dajjal).
 
 ·’Abdur Rahman bin Jubair reported: “I heard Abdullah bin ‘Amr ibn-‘As narrating that one day the Holy Prophet came out of his house and joined our company. His manner gave us the impression as if he were leaving us.’ He said, ‘I am Muhammad, the unlettered prophet of Allah’ and repeated this statement three times. Then he affirmed: “There will be no prophet after me’.” (Musnad Ahmad, Marwiyat’Abdullah bin Amr ibn’-As.)
 
@@ -79,7 +79,7 @@ Holy Prophet Muhammad. categorically mentioned in many Hadith that he is the Las
 
 ·Thauban reports: “The Holy Prophet observed: And there will arise Thirty imposters in my Ummah and each one of them will pronounce to the world that he is a prophet, but I am the last in the line of the Prophets of God and no Apostle will come after me.” (Abu Dawud, Kitab-ul-Fitan)
 
-·The Prophet of God said: “No Prophet will come after me and there will, therefore, be no other community of followers of any new prophet.” (Baihaqi,Kitab-ul Rouya; Tabarani)
+·The Prophet of God said: “No Prophet will come after me and there will, therefore, be no other community of followers of any new prophet.” (Baihaqi, Kitab-ul Rouya; Tabarani)
 
 ·The Holy Prophet observed: “I am the last in line of the prophets of God and my Masjid is the last Masjid (referring the Holy Masjid of the Prophet).” (Muslim, Kitab-ul-Hajj; Bab:Fadl-us-Salat bi Masjidi Mecca wal Medina)
 
@@ -141,7 +141,7 @@ Did Mirza Ghulam Qadiani fulfilled these criteria and performed his duties?
 
 Hadith regarding the coming of Hazrat Eisa Ibne Maryam
 
-Mirza claimed that he is the Promised Messiah, Eisa Ibne Maryam, that was prophesiced by the Holy Prophet,who he will come before the Day of Judgement. Was he correct in his claim? Let us see, what Holy Prophet SAAW said about this:
+Mirza claimed that he is the Promised Messiah, Eisa Ibne Maryam, that was prophesiced by the Holy Prophet, who he will come before the Day of Judgement. Was he correct in his claim? Let us see, what Holy Prophet SAAW said about this:
 
 ·”By Him in Whose Hand is my life, Ibn Maryam (Jesus Christ) would certainly pronounce Talbiyah for Hajj or for Umrah or for both (simultaneously as a Qarin) in the valley of Rawha.” (Sahih Muslim, Book 7, No. 2877)
 

@@ -122,7 +122,7 @@ Ways of seeking mediation with Imam (a.s.)
 
 3. Making a written presentation of one’s needs to Imam (a.s.) This is a
 
-very simple and forthright medium of submitting one’s demands to Imam (a.s.). Here, a Shia notes down his demands and aspirations and sends it to Imam (a.s.). In India , this practice is especially conspicuous on 15th Shabaan. On this day, the day of birth of our Imam (a.s.), Shias very enthusiastically list their demands on a piece of paper and cast the letters in the sea. However, should this practice be observed only on 15th Shabaan?
+very simple and forthright medium of submitting one’s demands to Imam (a.s.). Here, a Shia notes down his demands and aspirations and sends it to Imam (a.s.). In India, this practice is especially conspicuous on 15th Shabaan. On this day, the day of birth of our Imam (a.s.), Shias very enthusiastically list their demands on a piece of paper and cast the letters in the sea. However, should this practice be observed only on 15th Shabaan?
 
 Do we need our Imam’s assistance only on the occasion of his birth? Or is it
 
@@ -134,7 +134,7 @@ requirements, so that for the rest of the year we discern no need for Imam? God 
 
 (Surah Yusuf, Verse 88)
 
-This was a confession of intense regret and remorse expressed by the brothers of Hazrat Yusuf (a.s.) to their father (Hazrat Yaqoob ) and their brother. Hazrat Yusuf and Hazrat Yaqoob (peace be on both) displayed ample clemency and compassion, and forgave their sins. O our Master! Even if we have disobeyed Allah and distressed your ancestors (a.s.), please forgive us because O our Chief and Guardian, certainly you exceed Yusuf (a.s.) in his clemency, forbearance and compassion. Therefore please deal with us in a manneArial” akin to Hazrat Yusuf’s treatment vis-a-vis his brothers, while surely we are most undeserving of such leniency.
+This was a confession of intense regret and remorse expressed by the brothers of Hazrat Yusuf (a.s.) to their father (Hazrat Yaqoob) and their brother. Hazrat Yusuf and Hazrat Yaqoob (peace be on both) displayed ample clemency and compassion, and forgave their sins. O our Master! Even if we have disobeyed Allah and distressed your ancestors (a.s.), please forgive us because O our Chief and Guardian, certainly you exceed Yusuf (a.s.) in his clemency, forbearance and compassion. Therefore please deal with us in a manneArial” akin to Hazrat Yusuf’s treatment vis-a-vis his brothers, while surely we are most undeserving of such leniency.
 
 (Barnaameh Sa’adat, page 147, by Sayyed Ibne Taoos)
 

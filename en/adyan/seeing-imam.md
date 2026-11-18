@@ -8,7 +8,7 @@ tags:
   - 'AL Mahd'
   - 'AL Mahdi In Quran'
   - 'AL Mahdi In Sunni'
-  - 'Mahdi (A.J) in Sunnies Rated : 9 (out of 10) 1 users'
+  - 'Mahdi (A.J) in Sunnies Rated: 9 (out of 10) 1 users'
   - 'SEEING IMAM'
   - 'The Promised Mahdi (as)'
 date: '2013-06-03'
@@ -18,11 +18,11 @@ legacyUrl: '/english/seeing-imam/'
 review: true
 ---
 
-When Imam Hasan al-‘Askari, peace be on him, died, the office of Divine Leadership (Imamate) was transferred to the Last Luminous Pearl of the House hold of the Holy Prophet, Imam al-Mahdi, peace be on him, . Although His Eminence did not appear amongst the people, some persons in whom he had trust and confidence were allowed to visit him and present him the problems and questions of the Shi’ites. And they communicated to the people the guidance and commands of the Divine Luminous Light.
+When Imam Hasan al-‘Askari, peace be on him, died, the office of Divine Leadership (Imamate) was transferred to the Last Luminous Pearl of the House hold of the Holy Prophet, Imam al-Mahdi, peace be on him,. Although His Eminence did not appear amongst the people, some persons in whom he had trust and confidence were allowed to visit him and present him the problems and questions of the Shi’ites. And they communicated to the people the guidance and commands of the Divine Luminous Light.
 
 From the point of view faith, confidence and virtue, these were distinguished persons among the Muslims who were mediators between the Imam and the people. And in due time they conveyed the guidance of His Eminence to the people. By studying the degree of the character and perception of the belief and piety of these individuals, not only does the greatness of their personalities become clear to us, but we become more familiar with the Imam of the Age, because, among the sayings of these distinguished, trustworthy and reliable companions of the Holy Imams, one finds the signs of the greatness of His Eminence (Imam al-Mahdi), Among the companions of Imam e Zaman, four became his most famous and confidential deputies who acted as mediators between the Imam and the people, and they are known as the Nawwab al-arba’ah (the four deputies). In order to know more about the dignity and greatness of their positions, we give below a brief description of each one of them:
 
-1. Uthman ibn Sa’id ‘Umari: This honourable figure was not only a deputy (na’ib) of Imam e Zaman but he was also a representative (wakil ) of Imam Hasan al-‘Askari, peace be on him, and Imam ‘Ali an-Naqi, peace be on him. He settled and organized many affairs of the Shi’ites. The Tenth Imam (al-Hadi) said to his followers regarding him. “This Abu ‘Umari is a reliable and trustworthy person. Whatever he says to you he says so on my behalf, and whatever he does he does on my behalf.”
+1. Uthman ibn Sa’id ‘Umari: This honourable figure was not only a deputy (na’ib) of Imam e Zaman but he was also a representative (wakil) of Imam Hasan al-‘Askari, peace be on him, and Imam ‘Ali an-Naqi, peace be on him. He settled and organized many affairs of the Shi’ites. The Tenth Imam (al-Hadi) said to his followers regarding him. “This Abu ‘Umari is a reliable and trustworthy person. Whatever he says to you he says so on my behalf, and whatever he does he does on my behalf.”
 
 This representation continued till 254 A.H, when Imam al-Hadi, peace be on him, died. Then, the Eleventh Imam is reported to have praised the character of Abu ‘Umari as having his high esteem in his address to his Shi’ites, saying: “This Abu ‘Umari is a reliable and trustworthy person. He had the confidence of the preceding Imam, and has also my confidence in my lifetime and after my death. Whatever he says to you he says so on my behalf, and whatever he does he does on my behalf.”
 
@@ -40,7 +40,7 @@ In the name of Allah, the Beneficient, the Merciful. You are going to die in six
 
 As can be seen from this, it is the last order in which the door of special deputation is closed by the death of ‘Ali ibn Muhammad; hence, anyone who claims to be a mediator, or claims that the Imam can be seen, is a liar. In the period of the major occultation no one has made the claim that he has been in the presence of the Holy Imam e Zaman.
 
-The special deputies presented to Imam e Zaman the problerns and questions of the Shi’ite scholars, and he answered the ones that were necessary in letter form and delivered them through the same deputies. In these letters, the most important and difficult problems on different subjects of Shi’ite beliefs were cleared up. One of these problems was a question as to what would be the responsibility of the Shi’ites who would be faced with new events during the period of occultation, and what should they do to face them ?
+The special deputies presented to Imam e Zaman the problerns and questions of the Shi’ite scholars, and he answered the ones that were necessary in letter form and delivered them through the same deputies. In these letters, the most important and difficult problems on different subjects of Shi’ite beliefs were cleared up. One of these problems was a question as to what would be the responsibility of the Shi’ites who would be faced with new events during the period of occultation, and what should they do to face them?
 
 In the letter issued by Imam e Zaman to the celebrated and distinguished Shi’ite Is’haq ibn Yaqub he recounted duties, methods and guidance for the Shi’ites in the period of occultation. This direction was carried out for many centuries, and it is one of the proofs of the comprehensiveness and eternity of Islamic rule. In one of the letters to Imam e Zaman which he sent through the second special deputy of the Imam, Is’haq ibn Ya’ qub asked him some different questions, among which was a question which is the subject of our discussion. The Imam said that in those affairs one must refer to thosewho really understands their (Imams’) sayings and have truly related them:
 

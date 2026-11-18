@@ -201,8 +201,8 @@ occultation is to be prolonged till all the practices of the prophets and their\
 methods are accomplished in Hazrat Mahdi (a.s.).
 
 Sudair\
-asked Imam Sadiq (a.s.) “O son of the Prophet ! why it is like that (the\
-occupation is prolonged) ?” Imam replied, “Allah will not order the\
+asked Imam Sadiq (a.s.) “O son of the Prophet! why it is like that (the\
+occupation is prolonged)?” Imam replied, “Allah will not order the\
 reappearance till all the practices of the Prophets, which the prophets had\
 during their occultation are not acted upon fully. O Sudair it is obligatory\
 for him (Qaem) to fulfill all these things. Allah says:
@@ -239,7 +239,7 @@ occultation of the master of this affair is a must, during which the sinful\
 people will be involved in doubts.”
 
 I asked\
-Imam, “May my life be sacrificed for you, why is it ?
+Imam, “May my life be sacrificed for you, why is it?
 
 He said: “Even\
 we have not been permitted the exposition of this affair.” I enquired,\
@@ -293,7 +293,7 @@ Allah disliked the company of the people for us he removed us away from them.”
 Finally, it\
 is to be mentioned that Imam-e-Zaman (a.s.) himself does not like, that the\
 people should insist upon knowing the reasons for occultation because it is one\
-of the divine secrets. According to Imam-e-Zaman (a.s. ), Allah the High and\
+of the divine secrets. According to Imam-e-Zaman (a.s.), Allah the High and\
 Mighty does not wish that we question about the (causes of) Ghaibat because it\
 would be detrimental for us. if we know of the reason we would be aggrieved.
 

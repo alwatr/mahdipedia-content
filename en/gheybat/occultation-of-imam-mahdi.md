@@ -44,7 +44,7 @@ One of the companions of Imam Sadiq (a.s.) – Hasan b. Mehboob Zarrad wrote a b
 
 Seqatul Islam – Shaikh-e-Kulaini (r.a.) in Al Kafi (Book of Divine Proof, chap. of Ghaibat) reports a tradition from Muffazal (r.a.), who narrates from Imam Sadiq (a.s.),
 
-‘By Allah, your Imam will be hidden from you for a long time till it will be said – where has he gone? Has he been killed? Or has he died? Or has he been destroyed? .. and you will be tested in such a manner that tears will flow from the eyes of believers who are grieved with his separation. Troubles and difficulties will afflict you in such a manner as a ship is trapped in a storm. Then except for those who are firm in their pledge with Allah and whose faith has been established and engraved in their hearts, nobody else will be saved.’
+‘By Allah, your Imam will be hidden from you for a long time till it will be said – where has he gone? Has he been killed? Or has he died? Or has he been destroyed?.. and you will be tested in such a manner that tears will flow from the eyes of believers who are grieved with his separation. Troubles and difficulties will afflict you in such a manner as a ship is trapped in a storm. Then except for those who are firm in their pledge with Allah and whose faith has been established and engraved in their hearts, nobody else will be saved.’
 
 Shaikh-e-Sadooq (r.a.) in ‘Kamaluddin’ records a tradition from Imam Sadiq (a.s.),
 

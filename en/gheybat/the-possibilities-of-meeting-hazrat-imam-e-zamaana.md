@@ -35,7 +35,7 @@ In the dua of Asr-e-Ghaibat, we find the following phrase:
 
 “O Allah: I Implore you to let me see the Valiye-Amr”
 
-Similar such phrases and expressions are found in other duas related to Hazrat Imam-e-Zamaana (a.t.f.s.). In Dua-e-Nudbah, a believer remembers his Imam, and pleads with him in this manner :
+Similar such phrases and expressions are found in other duas related to Hazrat Imam-e-Zamaana (a.t.f.s.). In Dua-e-Nudbah, a believer remembers his Imam, and pleads with him in this manner:
 
 “It is indeed very hard for me to bear that I can see everyone but am unable to see you”
 
@@ -85,7 +85,7 @@ The levels of meeting
 
 Spiritual meeting:
 
-Spiritually we should develop such a bond with Hazrat Imam-e-Zamaana (a.t.f.s.) that we should feel his presence in front of us. The sentiment should be similar to our distant Ziyarat of Hazrat Imam Husain (a.s.), which we recite with complete recognition .When we recite the Ziyarat we feel as if we are present in front of Imam Husain (a.s.) and are talking to him (a.s.). If such emotions are provoked, the feelings become intense and tears start trickling down the eyes.
+Spiritually we should develop such a bond with Hazrat Imam-e-Zamaana (a.t.f.s.) that we should feel his presence in front of us. The sentiment should be similar to our distant Ziyarat of Hazrat Imam Husain (a.s.), which we recite with complete recognition.When we recite the Ziyarat we feel as if we are present in front of Imam Husain (a.s.) and are talking to him (a.s.). If such emotions are provoked, the feelings become intense and tears start trickling down the eyes.
 
 When a person says from the depth of his heart, Assalamo Alaika Ya Sahebaz Zamaan (a.s.), he develops a spiritual bond with him. However, it is imperative that the ziyarat and salaam should be said with utmost attention and feelings and not out of habit and indifference. This had been eloquently explained in Dua Nudba thus:
 
@@ -123,9 +123,9 @@ Innumerable anecdotes of meeting with Imam-e-Zamaana (a.t.f.s.) have been relate
 
 Imam-e-Zamaana (a.t.f.s.) is alive
 
-lmam(a.s.) is living on this very earth.
+lmam (a.s.) is living on this very earth.
 
-Imam(a.s.) solves the problems of the people
+Imam (a.s.) solves the problems of the people
 
 We should turn towards him in times of crisis
 
@@ -172,7 +172,7 @@ Imam (a.s.) continued
 
 “O Ibne Mahziyaar if some Shias from you did not seek forgiveness for others then all of you would have perished except some special Shias. The special Shias are those whose deeds match their words.”
 
-(Tabseratul Wali by Sayed Hashim Bahraani,P 142)
+(Tabseratul Wali by Sayed Hashim Bahraani, P 142)
 
 An important lesson that we learn from this meeting is that an increase in wealth, intimidation of poor shias and breaking ties with relatives are reasons for not being able to meet Imam-e-Zamaana (a.t.f.s.). Hence if we want to meet Imam (a.s.) we should avoid all these misdeeds.
 

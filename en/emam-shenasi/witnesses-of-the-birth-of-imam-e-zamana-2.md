@@ -12,7 +12,7 @@ tags:
   - 'Awaiting'
   - 'AWAITING FOR IMAM A.S.OR FOR SYMPTOMS AND SIGNS:'
   - 'Few Signs Of The Arrival Of Imam Mehdi (as)'
-  - 'Mahdi (A.J) in Sunnies Rated : 9 (out of 10) 1 users'
+  - 'Mahdi (A.J) in Sunnies Rated: 9 (out of 10) 1 users'
   - 'The Promised Mahdi (as)'
 date: '2013-06-12'
 updated: '2013-06-12'
@@ -27,13 +27,13 @@ Various objections have been raised regarding the birth of Hazrat Mahdi (A.T.F.S
 
 First of all is the objection that if the birth of Hazrat Mahdi (A.T.F.S.) has already occurred then a tradition in support of this should be shown to them in the Sahih-e-Bukhari or Sahih-e-Muslim (the two most popular books of hadith for Sunnis).
 
-They are willing to believe only after seeing such a hadith. Actually this objection is based neither on Shariat nor on reasoning and understanding. Rather, by refusing to believe in the birth of Hazrat Mahdi (A.T.F.S.) they have doubted the power of the Almighty Allah. Apart from this the objection is so foolish that any wise person would feel amused. Why should the Sahih-e-Bukhari & Sahih Muslim be considered the touchstone for proving the veracity of every fact ? At least they have not demanded the date of birth from the Holy Quran!
+They are willing to believe only after seeing such a hadith. Actually this objection is based neither on Shariat nor on reasoning and understanding. Rather, by refusing to believe in the birth of Hazrat Mahdi (A.T.F.S.) they have doubted the power of the Almighty Allah. Apart from this the objection is so foolish that any wise person would feel amused. Why should the Sahih-e-Bukhari & Sahih Muslim be considered the touchstone for proving the veracity of every fact? At least they have not demanded the date of birth from the Holy Quran!
 
 This objection could be replied to in numerous ways but here it would suffice to give only three replies:-
 
 1. The Sahih Bukhari and Sahih Muslim have never been used as a source for the date of birth of any historical personality. So much so that these two books are not depended upon even for determining the date of birth of the Holy Prophet (SAW.) and the Khulafa-e-Rashedeen (the four Caliphs). Then why should it be demanded from us to prove the birth of Imam (A.S.) from Sahih Bukhari and Sahih Muslim?
 
-2. The date is not mentioned in Sahih Bukhari and Sahih Muslim. Imam Bukhari had not even come into existence in the year 255 A H or 256 A H. So how could he report the birth of Imam Mahdi (A.S.). Although the two authors have compiled in their books the prophecies of the Holy Prophet (SAW.) regarding the various aspects such as that Mahdi shall be from the Progeny of Fatima (S.A.), from the descendants of Imam Husain (a.s.), and he shall fill the earth with justice and equity. Hence, how should we believe in his birth ? The witnesses of the birth of Imam (AS.) shall be described on later in this article.
+2. The date is not mentioned in Sahih Bukhari and Sahih Muslim. Imam Bukhari had not even come into existence in the year 255 A H or 256 A H. So how could he report the birth of Imam Mahdi (A.S.). Although the two authors have compiled in their books the prophecies of the Holy Prophet (SAW.) regarding the various aspects such as that Mahdi shall be from the Progeny of Fatima (S.A.), from the descendants of Imam Husain (a.s.), and he shall fill the earth with justice and equity. Hence, how should we believe in his birth? The witnesses of the birth of Imam (AS.) shall be described on later in this article.
 
 3. If today we want to confirm the date of birth of a particular person we have to either refer to the Municipality records or the registers of government. In the same way, to find out the date of birth of Hazrat Mahdi (A.T.F.S.) we have to seek the assistance of the historical registers or in other words, the history books. So if anyone wishes he is requested to peruse the books of any of the unbiased Islamic historians. If he wishes to read the statements of many historians he could refer to the book titled, ‘Danishmandaan Aammah wa Mahdi-e-Maood’ This book has 120 historians whose statements have been recorded
 
@@ -78,7 +78,7 @@ Abu Ohanim the slave of Imam Hasan Askari (AS.) relates:
 
 “A son was born to Abu Mohammad Imam Hasan Askari (AS.) whom he named as M-H-M-D. On the third day he took the new born before his companions and said, “After me he is your master and for you he is my successor. This is the Qaem who shall be awaited when the earth is filled with injustice and tyranny, be will fill it with justice and equity.” (Biharul Anwaar vol.51 page 5)
 
-Abu Nasr the servant of Imam Hasan Askari (A.S.) reports that, “I entered in the presence of Imam-e-Zaman (A.T.F.S.) He asked for red sandal wood. I brought it. He asked, “Do you know me ? I replied, ‘You are my master and the son of my master. He said, “lam the last of the vicegerents (awsiya).”
+Abu Nasr the servant of Imam Hasan Askari (A.S.) reports that, “I entered in the presence of Imam-e-Zaman (A.T.F.S.) He asked for red sandal wood. I brought it. He asked, “Do you know me? I replied, ‘You are my master and the son of my master. He said, “lam the last of the vicegerents (awsiya).”
 
 Testimony Of The Companions Regarding The Son Of The Imam: ·
 

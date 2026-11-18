@@ -119,17 +119,17 @@ Lets us see what are the characteristics and special attributes of the companion
 
 (a) The number of companions
 
-Aban Ibn Tuglab narrates that, ?During my visit to Makkah, I presented myself in the company of Imam Sadiq (a.s.) in Masjidul Haram, and was honored by the opportunity to kiss his hand. He (a.s.) said, ?O Aban, very soon, Allah will fill this Masjid with 313 persons.
+Aban Ibn Tuglab narrates that,?During my visit to Makkah, I presented myself in the company of Imam Sadiq (a.s.) in Masjidul Haram, and was honored by the opportunity to kiss his hand. He (a.s.) said,?O Aban, very soon, Allah will fill this Masjid with 313 persons.
 
 (Ghaybat-e-Nomani, page 313).
 
-In another tradition, Imam Jafar Sadiq (a.s.) says, ?Imam Qaem (a.s.) will not leave the city of Makkah till such time, that he completes the size of his group.Abu Baseer, a famous companion of Imam Sadiq (a.s.) once asked the Holy Imam (a.s.) about the size of Imam Mahdis (a.s.) group, to which Imam (a.s.) replied, Ten thousand.
+In another tradition, Imam Jafar Sadiq (a.s.) says,?Imam Qaem (a.s.) will not leave the city of Makkah till such time, that he completes the size of his group.Abu Baseer, a famous companion of Imam Sadiq (a.s.) once asked the Holy Imam (a.s.) about the size of Imam Mahdis (a.s.) group, to which Imam (a.s.) replied, Ten thousand.
 
-Apparently, the above traditions may appear in conflict with each other. But there is no contradiction. Explanations, which appear under these traditions, inform us that Imam Mahdi (a.t.f.s.), will have 313 ?special companions?. Besides these, he (a.s.) will also enjoy the help and support of other people who will be his companions.
+Apparently, the above traditions may appear in conflict with each other. But there is no contradiction. Explanations, which appear under these traditions, inform us that Imam Mahdi (a.t.f.s.), will have 313?special companions?. Besides these, he (a.s.) will also enjoy the help and support of other people who will be his companions.
 
 (b) The characteristics of Imam Mahdi?s (a.s.) companions
 
-While narrating the features of the companions of Imam Mahdi (a.t.f.s.), Imam Sadiq (a.s.) narrates that,They will be such men, that their hearts will be like pieces of iron.
+While narrating the features of the companions of Imam Mahdi (a.t.f.s.), Imam Sadiq (a.s.) narrates that, They will be such men, that their hearts will be like pieces of iron.
 
 There will exist not a shred of doubt in their minds, nor will they ever harbour any doubts. To uphold the rights of Allah, they will be unyielding (like hard stone). They will constantly circumambulate the presence of the Holy Imam as moth circumambulate the fire (as they are attracted to the glow of the fire). They will submit themselves in the service of Imam Mahdi (a.t.f.s.). They will remain awake in the nights, and worship of Allah Through out. Their voices, as they worship Allah, will be similar to the humming sound of the honeybees. They will remain alert during the nights and prepare for jehad during the days. They will always be attentive towards the service and obedience of Imam Mahdi (a.t.f.s.).
 
@@ -153,7 +153,7 @@ The above traditions highlights the amazing power and strength of each companion
 
 (d) The personalities of the companions of Hazrat Mahdi (a.s.)
 
-Imam Baqir (a.s.) in a prophecy says that,I see the companions of Imam Mahdi (a.t.f.s.) controlling every thing in the East and the West. Every entity of this world will be involved in their obedience. Even the animals and the birds will be content in their obedience. The segments of the earth will take pride of pride themselves over each other saying that,Today, a companion of Imam Mahdi (a.t.f.s.) has walked upon me.
+Imam Baqir (a.s.) in a prophecy says that, I see the companions of Imam Mahdi (a.t.f.s.) controlling every thing in the East and the West. Every entity of this world will be involved in their obedience. Even the animals and the birds will be content in their obedience. The segments of the earth will take pride of pride themselves over each other saying that, Today, a companion of Imam Mahdi (a.t.f.s.) has walked upon me.
 
 (Behaar ul Anwaar, volume 52, page 327).
 

@@ -35,7 +35,7 @@ Mutamid-e-Abbasi, who was successor of Mutawakkil, was as apprehensive of the bi
 
 These efforts became more vigorous and intense the demise of Imam Hasan Askari (a.s.). At this juncture, their task became more complex since they understood that the inevitable Promise of Allah had already materialized. The reins of Mastership came in the hands of Imam Mahdi (a.t.f.s.). Thus the whole universe became subservient to him.
 
-Shaikh Saduq (r.a), the famous Shia scholar writes in his book ‘Kamaluddin’ :
+Shaikh Saduq (r.a), the famous Shia scholar writes in his book ‘Kamaluddin’:
 
 “When people departed after burying Imam Hasan Askari (a.s.), the Caliph and his aides started searching for the son of Imam (a.s.) more frantically and numerous houses were raided in this regard.”[^4]
 
@@ -103,7 +103,7 @@ These privileged Shias were men of distinction. They excelled in all the facets 
 
 A probe into the lives and times of these pious personalities increases our understanding of their position and also enhances our cognizance of Imam (a.t.f.s.) because their words and traits reflect the signs of Imam (a.t.f.s.). Among these deputies, four of them were very famous and renowned.[^16] They were popularly known as ‘Nawwaabe-Arbaa’ (Four Special Deputies). We present a brief account of their lives, in order to acquire a better understanding of their position.
 
-First Deputy : Usman bin Saeed Amri
+First Deputy: Usman bin Saeed Amri
 
 He was also the deputy and trustee of Imam Ali Naqi (a.s.) and Imam Hasan Askari (a.s.). In that capacity, he handled an enormous amount of responsibilities pertaining to the affairs of Shias. Imam Ali Naqi (a.s.) enumerated his virtues, in front of his followers as:
 

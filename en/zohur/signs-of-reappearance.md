@@ -49,7 +49,7 @@ Sheikh Abbas (r.a.) says in his book Muntahal Aamal that the cry from the sky sh
 
 all the people shall hear it, in their own languages”.
 
-(Behaarul Anwaar , vol. 52, pg. 244)
+(Behaarul Anwaar, vol. 52, pg. 244)
 
 In Tafseer of Ali Ibne Ibrahim Qummi (r.a.), under the explanation of the 50th verse of Surah Saba, it is mentioned that Imam Baqir (a.s.) was quoted to have said that people shall be terrified upon hear­ing this cry and the earth shall devour them. Maqatil has written in his tafseer that from among the signs of reappearance is the call from the sky and it shall occur in the month of Ramazan on a night, of Friday. After this he has also related about, the universal cry. A caller will raise a cry on the 23rd of Ramazan, “0 People! Be aware that the re­appearance of the Imam of the time has come to pass”. On hearing this, all those who had been standing shall sit down and those who had been sitting shall stand up.
 
@@ -69,7 +69,7 @@ Whenever will the advent of our Qaem be, each one of you shall be bestowed with 
 
 (Behaarul Anwaar, vol. 52, p. 335)
 
-Imam Sadiq (a.s.) said: Until the advent of AI-Qaem the people shall be having only two parts of knowledge. After his reappear­ance twenty live parts more shall be added to their knowledge .
+Imam Sadiq (a.s.) said: Until the advent of AI-Qaem the people shall be having only two parts of knowledge. After his reappear­ance twenty live parts more shall be added to their knowledge.
 
 (Behaarul Anwaar vol 52, pg. 336, Isbatul Huda, vol. 6, Ghaybate Noamani).
 

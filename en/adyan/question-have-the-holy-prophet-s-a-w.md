@@ -1,6 +1,6 @@
 ---
 slug: question-have-the-holy-prophet-s-a-w
-title: 'Question :Have the Holy Prophet (s.a.w.a.) and the Infallible Imams (a.s.) informed us about the “Promised Mahdi”?'
+title: 'Question:Have the Holy Prophet (s.a.w.a.) and the Infallible Imams (a.s.) informed us about the “Promised Mahdi”?'
 description: 'Have the Holy Prophet (s.a.w.a.) and the Infallible Imams (a.s.) informed us about the “Promised Mahdi”? Reply: Many reliably narrated traditions emanate…'
 kind: article
 topic: adyan

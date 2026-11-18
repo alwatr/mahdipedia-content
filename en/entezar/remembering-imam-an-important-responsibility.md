@@ -43,7 +43,7 @@ We are thankful to Allah that we were born in a family where the love of Ahle Ba
 
 (Beharul Anwar, vol. 36, pg. 296)
 
-The only way to increase the , love of Ahle Bait (a.s.) is their remembrance. An important benefit of this remembrance is that we will be safe from the assaults of Shaitan. A great scholar used to explain to his students that Shaitan is smarter than we are. He has promised Allah that he will deviate the progeny of Adam (a.s.). To achieve his aim he employs various tactics to deviate us. The easiest and the most successful way to save ourselves from his deceit is put the shield of remembrance of Ahle Bait (a.s.) between ourselves and Shaitan. We find a similar concept in traditions as explained by the scholar to his students. Shaitan stays away from those who are busy in the remembrance of Ahle Bait (a.s.).
+The only way to increase the, love of Ahle Bait (a.s.) is their remembrance. An important benefit of this remembrance is that we will be safe from the assaults of Shaitan. A great scholar used to explain to his students that Shaitan is smarter than we are. He has promised Allah that he will deviate the progeny of Adam (a.s.). To achieve his aim he employs various tactics to deviate us. The easiest and the most successful way to save ourselves from his deceit is put the shield of remembrance of Ahle Bait (a.s.) between ourselves and Shaitan. We find a similar concept in traditions as explained by the scholar to his students. Shaitan stays away from those who are busy in the remembrance of Ahle Bait (a.s.).
 
 (3) Imam Sadiq (a.s.) said to his famous companion, Dawood bin Sarhan:
 
@@ -73,7 +73,7 @@ always accepted.
 
 An Arab poet who was intensely attached to Imam Zamana (a.t.f.s.) has recited the following couplet:
 
-‘Allah knows that I don’t remember (you) How do I remember you when I don’t forget you.’ (Mikyalul Makarem Fi Favaidid Dua Lil Qaem, vol.2,pg.308)
+‘Allah knows that I don’t remember (you) How do I remember you when I don’t forget you.’ (Mikyalul Makarem Fi Favaidid Dua Lil Qaem, vol.2, pg.308)
 
 The above couplets are an example of the tradition of Imam Moosa Kazim (a.s.) when a\
 person asked him whether the twelfth Imam (a.s.)will be unseen? Imam (a.s.) replied:
@@ -116,10 +116,10 @@ They (enemies) perceive your reappearance as distant but we consider it as near.
 
 This supplication can be found in Mafateehul Jinaan, Beharul Anwaar, vol. 102, pg. 112
 
-2) Every Friday morning to organise an assembly for Dua-e-Nudba in the house and/or in the locality. Nudba means intense wailing. In this Dua, the lovers of Imam Husain (a.s.) in the condition of waiting asks :
+2) Every Friday morning to organise an assembly for Dua-e-Nudba in the house and/or in the locality. Nudba means intense wailing. In this Dua, the lovers of Imam Husain (a.s.) in the condition of waiting asks:
 
 ‘Where is the one who will take the revenge of the blood of the martyrs of\
-Karbala ?’
+Karbala?’
 
 I wish I had known where you are living!’
 

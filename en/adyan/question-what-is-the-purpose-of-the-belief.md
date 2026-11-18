@@ -1,6 +1,6 @@
 ---
 slug: question-what-is-the-purpose-of-the-belief
-title: 'Question :What is the purpose of the belief in “Mahdaviyyat” and when did it originate?'
+title: 'Question:What is the purpose of the belief in “Mahdaviyyat” and when did it originate?'
 description: 'What is the purpose of the belief in “Mahdaviyyat” and when did it originate? Reply: “Mahdaviyyat” is the belief about a universal saviour. All heavenly…'
 kind: article
 topic: adyan

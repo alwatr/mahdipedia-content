@@ -1,6 +1,6 @@
 ---
 slug: question-whether-the-original-books-of-the-ahle
-title: 'Question :Whether the original books of the Ahle Sunnat mention and relate about the matters related to the existence, life and reappearance of Imam Mahdi (a.s.)?'
+title: 'Question:Whether the original books of the Ahle Sunnat mention and relate about the matters related to the existence, life and reappearance of Imam Mahdi (a.s.)?'
 description: 'Whether the original books of the Ahle Sunnat mention and relate about the matters related to the existence, life and reappearance of Imam Mahdi (a.s.)?…'
 kind: article
 topic: adyan

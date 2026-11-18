@@ -9,7 +9,7 @@ tags:
   - 'AL Mahdi In Quran'
   - 'AL Mahdi In Sunni'
   - 'Imam Mohammad Mehdi (A.S)'
-  - 'Mahdi (A.J) in Sunnies Rated : 9 (out of 10) 1 users'
+  - 'Mahdi (A.J) in Sunnies Rated: 9 (out of 10) 1 users'
   - 'The Promised Mahdi (as)'
 date: '2013-06-03'
 updated: '2013-06-03'
@@ -46,7 +46,7 @@ I (i.e. Sayf b. ‘Umayra) was with Abu Jafar al-Mansur and he said to me of his
 
 “May I be your ransom, Commander of the faithful,” I said, “do you relate that?”
 
-” Indeed, by Him in Whose hands is my life ,” he replied, ” because my own ears have heard it. ”
+” Indeed, by Him in Whose hands is my life,” he replied, ” because my own ears have heard it. ”
 
 “Commander of the faithful,” I said, “this tradition which you have heard is before my time.”
 
@@ -54,7 +54,7 @@ I (i.e. Sayf b. ‘Umayra) was with Abu Jafar al-Mansur and he said to me of his
 
 “A man from the descendants of Fatima, peace be on her?” I asked.
 
-” Yes, ” he replied. ” Sayf, if it was not for the fact that I have heard from Abu Jafar Muhammad b. Ali (al-Baqir), who told me about it, even though all the people of the earth have told me about it, I would not accept it from them. However it was Muhammad b. Ali (al-Baqir), peace be on them, (who told me) .”
+” Yes, ” he replied. ” Sayf, if it was not for the fact that I have heard from Abu Jafar Muhammad b. Ali (al-Baqir), who told me about it, even though all the people of the earth have told me about it, I would not accept it from them. However it was Muhammad b. Ali (al-Baqir), peace be on them, (who told me).”
 
 [Yahya b. Abi Talib reported on the authority of Ali b. Asim, on the authority of Ata’ b. al-Sa’ib, on the authority of his father on the authority of Abd Allah b. Umar, who said:]
 
@@ -76,7 +76,7 @@ I (i.e. Abu Hamza al-Thumali) asked Abu Jafar (al-Baqir), peace be on him: “Is
 
 [Muhammad b. Abi al-Bilad (reported) on the authority of Ali b. Muhammad al-Azdi, on the authority of his father, on the authority of his grandfather, who said:]
 
-The Commander of the faithful, peace be on him, said: “Before the one who will arise (al-qa’im), there will be red death and white death; there will be locusts at their usual time and at their unusual time like the colours of blood. As for red death that is (from) the sword,while white death is (from) plague.”
+The Commander of the faithful, peace be on him, said: “Before the one who will arise (al-qa’im), there will be red death and white death; there will be locusts at their usual time and at their unusual time like the colours of blood. As for red death that is (from) the sword, while white death is (from) plague.”
 
 [al-Hasan b. Mahbub (reported) on the authority of ‘Amr b. Abi Miqdam, on the authority of Jabir al-Jufi on the authority of Abu-Jafar (al-Baqir), peace be on him:]
 
@@ -102,7 +102,7 @@ I (i.e. Abu Basir) heard Abu Jafar (al-Baqir) speak concerning the words of Him,
 
 (Sa’id b. Jubayr) said: “In the year in which the Mahdl will rise, twenty rain storms will rain on the earth. You will see their effects and benefits.”
 
-[al-Fadl b. Shadhan (reported) on the authority of Ahmad b. Muhammad b. Abi Nasr , on the authority of Thalaba al-Azdi, who said:]
+[al-Fadl b. Shadhan (reported) on the authority of Ahmad b. Muhammad b. Abi Nasr, on the authority of Thalaba al-Azdi, who said:]
 
 Abu Jafar (al-Baqir), peace be on him, said: “Two signs will come before the one who will arise (al-qa’im), peace be on him: there will be an eclipse of the sun in the middle of the month of Ramadan and an eclipse of the moon at the end of it.”
 

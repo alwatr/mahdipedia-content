@@ -34,7 +34,7 @@ Hadith-e-Qudsi are those concepts and ideas, which are although revealed to the 
 
 In this brief disquisition, we would like to ascertain about the various dimensions of the personality of Hazrat Mahdi (a.t.f.s.) but only in the light of Hadith-e-Qudsi:
 
-In the luminescent sky of Imamat the position of Hazrat Mahdi(a.t.f.s.) is like a sparkling star. Allah, the Almighty has also remembered Hazrat Mahdi (a.t.f.s.) with the same agnomen. As said in Hadith-e-Qudsi:-
+In the luminescent sky of Imamat the position of Hazrat Mahdi (a.t.f.s.) is like a sparkling star. Allah, the Almighty has also remembered Hazrat Mahdi (a.t.f.s.) with the same agnomen. As said in Hadith-e-Qudsi:-
 
 ” Amongst them Al-Qaem is like a sparkling star”
 
@@ -44,13 +44,13 @@ As the Holy Quran has also confirmed that:-\
 “that beacon was as if a sparkling star”.\
 (Nur:35)
 
-The position of Hazrat Mahdi (a.t.f.s.) could also be understood by the fact that Allah, the Exalted, loves him and holds him dear who endears him. He has made the love of Imam (a.t.f.s.) obligatory upon the people. As it can be found in Hadith-e-Qudsi that :
+The position of Hazrat Mahdi (a.t.f.s.) could also be understood by the fact that Allah, the Exalted, loves him and holds him dear who endears him. He has made the love of Imam (a.t.f.s.) obligatory upon the people. As it can be found in Hadith-e-Qudsi that:
 
 “O Mohammad! Love him (Mahdi) because I love him and whosoever loves him, I love him too.
 
 (Kitab-ul-Ghaibat Nomani, Chapter 4, pg. 96).
 
-Same love is mentioned in the Holy Quran in these words :-\
+Same love is mentioned in the Holy Quran in these words:-\
 “Soon Allah shall bring forth a people who are loved by Allah and they are loved by Him.”\
 (Maidah:45)
 

@@ -87,25 +87,25 @@ We have been instructed to deal with justice and kindness in our social life too
 
 Surely Allah enjoins the doing of justice and the doing of good (to others) and the giving to the kindred, and He forbids indecency and evil and rebellion; He admonishes you that you may be mindful.
 
-(Surah Nahl : 90)
+(Surah Nahl: 90)
 
 We must also give due regard to justice during conversations.
 
 And when you speak, then be just though it be (against) a relative.
 
-(Surah Anaam: 152 )
+(Surah Anaam: 152)
 
 The principles of justice should be upheld when dealing with enemies too.
 
 Be upright for Allah, bearers of witness with justice, and let not the hatred of a people incite you to act inequitably; act equitably.
 
-(Surah Maidah :8)
+(Surah Maidah:8)
 
 Under the guidance of Ahle Bait (a.s.), Shias have always regarded justice as a criterion in all the spheres of life. In the sighting of the moon, in divorce and in transactions the witnesses must be just. The justice of the narrator while narrating a tradition and of the leader of the prayers while leading the namaz and of the judge while passing a judgment is of utmost importance.
 
 The presence of justice and equilibrium inthe body ensures its sound health whereas the establishment of justice in the society leads to eradication of oppression and inequity.
 
-The heavens and the earth shall – if earth is purified of its injustices – shower their blessings .When actions are based on justice, all the citizens of the nation shall interact in a just manner. In the backdrop of these teachings we are awaiting a person whose reappearance shall erase all kinds of oppression from the world and establish justice. The earth shall glow with full intensity. It should be borne in mind that those who await the reappearance of just Imam day and night must make justice as a code of conduct of their lives. We should not get so used to our unjust conduct that the government of Imam Mahdi (a.s.) takes its toll on us and we oppose our Imam in the same way as Ameerul Momeneen (a.s.) was opposed by the very people who were foremost in pledging their allegiance to him. The reason for their opposition was that the impartial government of Ameerul Momeneen (a.s.) which was against their excessive conduct and undue expectations. A similar approach from the unbiased government of Imam-e-Asr (a.t.f.s.) too shall become manifest after his (a.s.) reappearance. However we do find some indications about his (a.s.) government in the traditions.
+The heavens and the earth shall – if earth is purified of its injustices – shower their blessings.When actions are based on justice, all the citizens of the nation shall interact in a just manner. In the backdrop of these teachings we are awaiting a person whose reappearance shall erase all kinds of oppression from the world and establish justice. The earth shall glow with full intensity. It should be borne in mind that those who await the reappearance of just Imam day and night must make justice as a code of conduct of their lives. We should not get so used to our unjust conduct that the government of Imam Mahdi (a.s.) takes its toll on us and we oppose our Imam in the same way as Ameerul Momeneen (a.s.) was opposed by the very people who were foremost in pledging their allegiance to him. The reason for their opposition was that the impartial government of Ameerul Momeneen (a.s.) which was against their excessive conduct and undue expectations. A similar approach from the unbiased government of Imam-e-Asr (a.t.f.s.) too shall become manifest after his (a.s.) reappearance. However we do find some indications about his (a.s.) government in the traditions.
 
 The Ruler and his helpers
 
@@ -267,7 +267,7 @@ When our Qaem (a.s.) reappears, he shall place his hand on the heads of the peop
 
 Imam Jafar Sadiq (a.s.) says:
 
-When our Qaem(a.s.) reappears, Allah will sharpen the sight and the hearing of our Shias to such an extent that they shall be needless of a message bearer. Imam will be seated at his place and all of them shall be able to see him (wherever they are).
+When our Qaem (a.s.) reappears, Allah will sharpen the sight and the hearing of our Shias to such an extent that they shall be needless of a message bearer. Imam will be seated at his place and all of them shall be able to see him (wherever they are).
 
 (Muntakhab al-Asar, pg 607)
 
@@ -275,7 +275,7 @@ Today, the world views events and incidences through the television. At the reap
 
 Imam Jafar Sadiq (a.s.) says:
 
-In the era of Qaem(a.s.), the believing brother of the west shall be able to see his believing brother in the east and vice versa.
+In the era of Qaem (a.s.), the believing brother of the west shall be able to see his believing brother in the east and vice versa.
 
 (Muntakhab al-Asar, pg 607)
 

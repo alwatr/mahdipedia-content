@@ -89,17 +89,17 @@ From the innumerable events in the life of the Holy Prophet (s.a.w.a.) we relate
 
 It is worth noting that the issue of Hazrat Ali (a.s.)’s successorship is a matter already decided by Allah (s.w.t.) and His Apostle. Now no Muslim has any right to object in this matter or to supersede the decision of the Holy Prophet (s.a.w.a.).
 
-First Incident : Daawat-e-Zulashirah
+First Incident: Daawat-e-Zulashirah
 
 In the first open banquet for his tribesmen i.e. elders of Bani Hashim, the Holy Prophet (s.a.w.a.) introduced the religion of Islam, invited them to accept the unity of Allah and to believe in his Prophethood. In this, gathering the determination and resolve of a youth astonished everyone. He alone responded to the clarion call of the Holy Prophet (s.a.w.a.) and believed in him spontaneously. This youth was none other than Hazrat Ali (a.s.), who was the chosen successor of Holy Prophet (s.a.w.a.).[^11]
 
-Second Incident : Ghadeer-e-Khum
+Second Incident: Ghadeer-e-Khum
 
-The previous episode was of the early days of Islam when it did not have many followers and helpers in its fold. However the second incident is of the time when the message of Islam had spread far and wide due to its refreshing teachings and also the exemplary character of Holy Prophet (s.a.w.a.) and had attracted an enormous number of followers. On the plains of Ghadeer-e-Khum, in front of a mammoth crowd of around 1.25 lakh pilgrims the Holy Prophet (s.a.w.a.) openly and unequivocally declared Hazrat Ali(a.s.) as his Divinely appointed successor. The only difference between the first and second incidents is that the former was a gathering involving a limited number of people (only tribesmen of Bani Hashim) while the in the later a massive crowd of pilgrims heard the announcement. Before all of them Holy Prophet (s.a.w.a.) – from a great the height and in the huge plains of Ghadeer – proclaimed that “Of whomsoever I am the master then this Ali too is his master (leader).”[^12]
+The previous episode was of the early days of Islam when it did not have many followers and helpers in its fold. However the second incident is of the time when the message of Islam had spread far and wide due to its refreshing teachings and also the exemplary character of Holy Prophet (s.a.w.a.) and had attracted an enormous number of followers. On the plains of Ghadeer-e-Khum, in front of a mammoth crowd of around 1.25 lakh pilgrims the Holy Prophet (s.a.w.a.) openly and unequivocally declared Hazrat Ali (a.s.) as his Divinely appointed successor. The only difference between the first and second incidents is that the former was a gathering involving a limited number of people (only tribesmen of Bani Hashim) while the in the later a massive crowd of pilgrims heard the announcement. Before all of them Holy Prophet (s.a.w.a.) – from a great the height and in the huge plains of Ghadeer – proclaimed that “Of whomsoever I am the master then this Ali too is his master (leader).”[^12]
 
 Hazrat Ali (a.s.) was the same man who was ever willing to sacrifice his life for Holy Prophet (s.a.w.a.) and the cause of Islam. Muslims had already witnessed the heroic feats of Hazrat Ali (a.s.) in the battles they had fought. They all accepted the leadership of such a courageous leader with a cheerful approval.
 
-Third Incident : Death-bed
+Third Incident: Death-bed
 
 This event relates to the final moments of the life of Holy Prophet (s.a.w.a.) while he was on his death bed, extremely weak and frail. Even at such a delicate moment, the Holy Prophet (s.a.w.a.) did not hesitate in emphasizing the successorship and leadership of Hazrat Ali (a.s.). He likened his Ahlul Bait (a.s.) to the Holy Quran and asserted that both will never separate from each other. He specified them as the (only) source of salvation,[^13]
 
@@ -229,7 +229,7 @@ A contemporary author from Egypt, and a renowned litterateur, Mohammad Hasnain H
 
 [^22]: Holy Quran Ankaboot: 48
 
-[^23]: Al – Mustadrak; 2 / 343 ; 3 / 150
+[^23]: Al – Mustadrak; 2 / 343; 3 / 150
 
 [^24]: ‘Muntakhabul-Athar’, pp. 99-100; ‘Ghaibat-e-Noomani’, p. 81, wherein those traditions are recorded which mention the names of Imams.
 

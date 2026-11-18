@@ -10,7 +10,7 @@ tags:
   - 'AL Mahdi In Sunni'
   - 'al-Mahdi'
   - 'Imam al-Mahd'
-  - 'Mahdi (A.J) in Sunnies Rated : 9 (out of 10) 1 users'
+  - 'Mahdi (A.J) in Sunnies Rated: 9 (out of 10) 1 users'
   - 'The Promised Mahdi (as)'
 date: '2013-06-03'
 updated: '2013-06-03'
@@ -177,41 +177,41 @@ Imam al-Mahdi (AS) wrote through one of his special deputies during the minor oc
 
 “Rest assured, no one has a special relationship with Allah. Whoever denies me is not from my (community). The appearance of the Relief (al-Faraj) depends solely upon Allah. Therefore those who propose a certain time for it are liars. As to the benefit of my existence in occultation, it is like the benefit of the sun behind the clouds where the eyes do not see it. Indeed, my existence is an amnesty for the inhabitants of the earth. Pray much to Allah to hasten the Relief, for therein also lies the release from your sufferings.”
 
-: | : | | . | || | . | | |
+: |: | |. | || |. | | |
 
-4_,| _o ]_7 | . _,_, q |_7 q _c 4_|_|| . _,_, w_,_| 4_,| o_|_c |
+4_,| _o ]_7 |. _,_, q |_7 q _c 4_|_||. _,_, w_,_| 4_,| o_|_c |
 
-. / (_): . / (_|. / / (_): . (_/ : (
+. / (_):. / (_|. / / (_):. (_/: (
 
-. | . . || |. | | . | . . /. |
+. |.. || |. | |. |.. /. |
 
-4_, |_9 _7 _9_|| q_8_D |_o | q _,_o w_,_|_9 _, _)_, | . _o
+4_, |_9 _7 _9_|| q_8_D |_o | q _,_o w_,_|_9 _, _)_, |. _o
 
-(_./ / / / (_S (_/ : (_S / (_)
+(_./ / / / (_S (_/: (_S / (_)
 
-| .: . | || | | . : | : || . / | || ||
+|.:. | || | |.: |: ||. / | || ||
 
-_, c |_9_,_,|_|| 4_7 q |_o |_9 . q_,|_o q_|| .__,]_) q 4_|_|| _||
+_, c |_9_,_,|_|| 4_7 q |_o |_9. q_,|_o q_||.__,]_) q 4_|_|| _||
 
-(_S. (_ . / (_) / / . / (_S
+(_S. (_. / (_) / /. / (_S
 
-| : . | . | ^ || | .: . | | | / . : . .
+|:. |. | ^ || |.:. | | | /.:..
 
 |_8_,_,_,_c | > | w_o_w_||_, c |_9_,_, |_| |_)_9 _,_,_,_c _9
 
-. : (_/ . (_ (_S . : (_S
+.: (_/. (_ (_S.: (_S
 
-. | || | | | | | . | | || | | ||
+. | || | | | | |. | | || | | ||
 
-q _p |_|| |_8 |_| . |_o | _, | q .__,|_7_w_|| |,_p_,|_|| . _c
+q _p |_|| |_8 |_|. |_o | _, | q.__,|_7_w_|| |,_p_,|_||. _c
 
-/ (_/ / (_| (_) (_S / . / . (_)
+/ (_/ / (_| (_) (_S /. /. (_)
 
-/ . / | . | . . || | : | || | ^ /|
+/. / |. |.. || |: | || | ^ /|
 
-o_)_7 _9 (_)_| > . |_9 _7 _9_|| |_,_7_e_,_, |_c ]_|| . _o | q _,_)|
+o_)_7 _9 (_)_| >. |_9 _7 _9_|| |_,_7_e_,_, |_c ]_||. _o | q _,_)|
 
-( . / (_) (_./ (_|: . . (_) / /
+(. / (_) (_./ (_|:.. (_) / /
 
 Guidance can be of different ways. Do we need to see God to guide us? How about the Prophet who has already passed away? The above tradition of Imam al-Mahdi (AS) gives a very interesting analogy, and the same analogy was given by the Prophet (PBUH&HF) on the account of Imam al-Mahdi (please see the article titled: Leadership and Infallibility). If we want to see our way and in order to walk safely, we need light. The Sun provides this light for us even if it is hidden behind the clouds where the eyes do not see it directly. Similarly, we benefit from the guidance of Imam al-Mahdi (AS) even though we can not see him during his period of occultation.
 

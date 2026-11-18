@@ -263,7 +263,7 @@ Imam-e-Zamana (a.t.f.s.) shall reappear, he shall destroy the idols and will hav
 
 radiance. These people shall ask him ‘Are you Mahdi?’ He shall reply, ‘Yes I am Mahdi.’ Then they shall all pay allegiance to him.’
 
-(Al-Malaahim wal Fitan, pg. 122,Roozgaarhaai, vol.1, pg. 416, tradition 482)
+(Al-Malaahim wal Fitan, pg. 122, Roozgaarhaai, vol.1, pg. 416, tradition 482)
 
 The reason for their having the same color and features is probably because their thinking shall be similar and their pain and sorrow will be shared. They would have absorbed the faith of Imam Mahdi (a.t.f.s.) in such a fashion that they would be just like him in his ethics and morals.
 

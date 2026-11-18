@@ -1,6 +1,6 @@
 ---
 slug: question-mention-the-names-titles-and-agnomens-of
-title: 'Question :Mention the names, titles and agnomens of Hazrat Mahdi (a.t.f.s)?'
+title: 'Question:Mention the names, titles and agnomens of Hazrat Mahdi (a.t.f.s)?'
 description: 'Mention the names, titles and agnomens of Hazrat Mahdi (a.t.f.s)? Reply: The real name of Hazrat Mahdi (a.t.f.s.) is “M-H-M-D” which is the same as that of…'
 kind: article
 topic: adyan
@@ -83,7 +83,7 @@ Imam Muhammad al-Taqi (a.s.) was asked, “Why is he called Muntazar (one who is
 
 Baqiyatullah:
 
-It has been narrated in traditions that, when Hazrat (a.t.f.s.) will reappear, he (a.s.) will lean against the Kaaba. Three hundred and thirteen of his followers will gather around him from far away places. The first words with which he will address them will be this Quranic verse :
+It has been narrated in traditions that, when Hazrat (a.t.f.s.) will reappear, he (a.s.) will lean against the Kaaba. Three hundred and thirteen of his followers will gather around him from far away places. The first words with which he will address them will be this Quranic verse:
 
 بَقِيَّةُ اللهِ خَيْرٌ لَّكُمْ إِنْ كُنْتُمْ مُّؤْمِنِيْنَ
 

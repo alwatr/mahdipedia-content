@@ -1,7 +1,7 @@
 ---
 slug: question-mention-briefly-about-what-has-been-recorded
-title: 'Question : Mention briefly about what has been recorded about the life of Imam Mahdi (a.s.).'
-description: 'Mention briefly about what has been recorded about the life of Imam Mahdi (a.s.). Reply: Name : M-H-M-D (م ح م د) Famous Titles : Mahdi, Mau’ood, Wali-…'
+title: 'Question: Mention briefly about what has been recorded about the life of Imam Mahdi (a.s.).'
+description: 'Mention briefly about what has been recorded about the life of Imam Mahdi (a.s.). Reply: Name: M-H-M-D (م ح م د) Famous Titles: Mahdi, Mau’ood, Wali-…'
 kind: article
 topic: adyan
 tags:

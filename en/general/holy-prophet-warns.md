@@ -1,7 +1,7 @@
 ---
 slug: holy-prophet-warns
 title: 'Holy Prophet (s.a.w) Warns'
-description: '“One who dies without recognizing the Imam of his time,then his death is that of an ignorant person” (Yanabiul Muadda, Vol 39 Page 137.) The main aim of…'
+description: '“One who dies without recognizing the Imam of his time, then his death is that of an ignorant person” (Yanabiul Muadda, Vol 39 Page 137.) The main aim of…'
 kind: article
 topic: general
 tags:
@@ -21,7 +21,7 @@ legacyUrl: '/english/holy-prophet-s-a-w-warns/'
 review: true
 ---
 
-“One who dies without recognizing the Imam of his time,then his death is that of an ignorant person”
+“One who dies without recognizing the Imam of his time, then his death is that of an ignorant person”
 
 (Yanabiul Muadda, Vol 39 Page 137.) The main aim of this site is to enlighten the people and to make them aware of the vital and significant position of our Present Imam. (Imam Mahdi a.s.) His position is so exalted that many people have tried to take his place they have taken the advantage of his occultation and have made many people believe that they are the real Imam the present Hujjat of God in this world. With their false proclamation and devious means they have deviated many innocent Muslims from their true path and lead them ashtray into a new religion formed by them. But the fact, which cannot be ignored, is that, however tall the proclamation made by them might be and whatever ways might be adopted by them these pseudo Mahdis can never prove themselves as the proclaimed one.
 

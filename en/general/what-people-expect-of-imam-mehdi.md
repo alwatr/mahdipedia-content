@@ -109,7 +109,7 @@ Giving guidance is not in the hands of even Caliphs of God. It is within exclusi
 
 (iv) “ If God willed, He could have brought them all together to Huda (guidance) so be not thou among the ignorant.” (Al-An’am: 35)
 
-(v) “If we had so willed, we could have given every soul it’s Huda (guidance) but the word from Me,about evil doers, took effect that I will fill hell with the Jinn and mankind together.” (As-Sajdah: 13)
+(v) “If we had so willed, we could have given every soul it’s Huda (guidance) but the word from Me, about evil doers, took effect that I will fill hell with the Jinn and mankind together.” (As-Sajdah: 13)
 
 (vi) If thy Lord had willed, whoever is in the earth would have believed, all of them, all together. Wouldst thou then (Muhammad) compel people until they are believers? (Younus: 99)
 
@@ -191,7 +191,7 @@ The same tradition reported by Abu Nuayeem Ispha-hani is as follows:
 
 It may be seen that Abu Nuayeem Ispha-hani quoted the Muslim’s Hadith in verbatim but for the word “the Mehdi” suffixed to the word “Ameer”. Imam Muslim (Died 216 Hijri) lived about two hundred years earlier to Imam Abu Nuayeem (Died 430 Hijri).
 
-Imam Muslim’s compilation is accepted as most sound and reliable. . Unfortunately, all such additions or conjectures no longer remained foreign. Gradually they were assimilated. Hence the belief that Imam Mehdi will be the Ameer of Muslims who will conquer Qustuntunya and will say prayer with Jesus (pbuh) , and help him kill Dajjal etc. etc.
+Imam Muslim’s compilation is accepted as most sound and reliable.. Unfortunately, all such additions or conjectures no longer remained foreign. Gradually they were assimilated. Hence the belief that Imam Mehdi will be the Ameer of Muslims who will conquer Qustuntunya and will say prayer with Jesus (pbuh), and help him kill Dajjal etc. etc.
 
 CONCLUSION: These and very many other imaginary “signs” and man-made “conditions” have\
 been blocking the way of seeking truth. The most reliable characteristic of the true Mehdi is his\
@@ -200,7 +200,7 @@ perfect obedience to Qur’an and following in the foot-steps of the Prophet (pb
 During the whole history of Islam, Hazrath Syed Muhammad, son of Syed Abdullah\
 (847 – 910 H) has been the only person who called upon people to verify the truth of his being\
 Mehdi and a Caliph of God by referring his deeds, woords and conditions to the Book of Allah\
-(Qur’an) and following the Prophet (pbuh) . He (Mehdi) said: I have placed Qur’an before people\
+(Qur’an) and following the Prophet (pbuh). He (Mehdi) said: I have placed Qur’an before people\
 and I call them toward Tawheed (Monotheism) and Ibadah (Worship). He (Mehdi) brought back\
 the object of Deen (Religion) before the eyes of masses. His life and message, even now arouses the\
 spirit of Love of God. May Allah guide us Ameen

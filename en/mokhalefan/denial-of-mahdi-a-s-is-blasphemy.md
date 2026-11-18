@@ -21,7 +21,7 @@ legacyUrl: '/english/denial-of-mahdi-a-s-is-blasphemy/'
 review: true
 ---
 
-Here we will prove that the denial of Iman-e-Zamana (A.S.) is synonymous to infidelity. First of all we should know what is the actual meaning of idolatry and who is an idolator ? Fourteen hundred years ago part of the globe known as Arabia was the cradle of ignorance andits inhabitants were in a state of illitracy and uneducation. The darkeness of ignorance illuminated with the advent of Islam brought by Prophet Hazrat Mohammad Mustafa (Peace be on him and and his progeny).
+Here we will prove that the denial of Iman-e-Zamana (A.S.) is synonymous to infidelity. First of all we should know what is the actual meaning of idolatry and who is an idolator? Fourteen hundred years ago part of the globe known as Arabia was the cradle of ignorance andits inhabitants were in a state of illitracy and uneducation. The darkeness of ignorance illuminated with the advent of Islam brought by Prophet Hazrat Mohammad Mustafa (Peace be on him and and his progeny).
 
 The people one after the other embraced Islam with few exceptions who due to racial and tribal hatred refused to accept the Prophet of Goda and were hell-bent to falsify the Holy Book descended on him by the God.
 
@@ -37,9 +37,9 @@ The Quran acclaimed Mohammad (Peace be on him and and his progeny) that resemble
 
 In the same way even Mahdaviyat is a established fact by Quran and one who rejects it will be an infidel.
 
-The Quran and the belief in Mahdaviyat :
+The Quran and the belief in Mahdaviyat:
 
-1. “And most surely it is a knowledge of the hour, therefore have no doubt about it.” (Zukhruf : 61) The gret well-known Sunni interpretor of Quran, Muqaatil bin Sulaiman, says about the above verse as follows :
+1. “And most surely it is a knowledge of the hour, therefore have no doubt about it.” (Zukhruf: 61) The gret well-known Sunni interpretor of Quran, Muqaatil bin Sulaiman, says about the above verse as follows:
 
 “This verse is revealed about Mahdi.”
 
@@ -67,15 +67,15 @@ Noor ul-Absar P-172)
 
 The above Suras are ample proofs that there is a mention of Imam-e-Zaman (A.S.) in Quran also and they all are supported by the Shia as well Sunni ullama and Scholars.
 
-Admiration of Imam (A.S.) in the Traditions :
+Admiration of Imam (A.S.) in the Traditions:
 
 1. Ahadees-e-Nabavi-Sayings related by the Holy Prophet of God (S.A.) are all written in books of narrations. About the Prophet himself the God had said “the obedience to Propher (A.S.) is the obedience to God.” (Nisa.80)
 
-2. Accept whatever is given to you by the Prophet and refrain from things for – bidden by him. (Hashr : 7)
+2. Accept whatever is given to you by the Prophet and refrain from things for – bidden by him. (Hashr: 7)
 
 3. He never speaks of his own unless Commanded by the God to do so through the divine message.
 
-From the above three verses the following facts are now established without doubt :-
+From the above three verses the following facts are now established without doubt:-
 
 1. Allegiance to the Prophet amounts to allegiance to God. To deny him is to deny God.
 
@@ -89,9 +89,9 @@ Declination of the re-appearence of Imam (A.S.) is the refusal of all that has c
 
 Refrence 1; Ibn-e-Hajare Asqalani in lesanol Mizan page 2; by Ibn-e-Hajare Macci Shafaii, Qaulul Mukhtasar fi alamate-e-Mahdi il Muntazar page 56;
 
-3; Hamuyi in Faraedus-Simtain Vol : 2 This Hadees and appropriateness of its sources provides no opportunity ofr criticism at all in any form.
+3; Hamuyi in Faraedus-Simtain Vol: 2 This Hadees and appropriateness of its sources provides no opportunity ofr criticism at all in any form.
 
-It openly declares him as an infidel who disagrees with the re-appearence of Imam (A.S.) and conceives that only the Quran is sufficient for his guidance. The above is a glaring instance of the re-appearence of Imam (A.S.). A day can not be transformed into night by closing one’s eyes. One would be called blind if one denies a existence of moon in the moon lit night. As one who has no faith in Islam and not following its tenet is an infidel. So also the belief in Mahdaviyat can also be judged in that light. It has found mention in Quran and as well as traditions. So disagreement with Mahdaviyat amounts to infedility. The scholars, ulama and writers of all the sects of Islam like Hambali; Shafai; Maleki, Hanafi; Wahabi Ashaira and Mutazela have finally agreed that the faith in Mahdaviyat is one of the essentials of religion and the refusal is at part with infidelity. The above is mentioned in the following books by following authors :
+It openly declares him as an infidel who disagrees with the re-appearence of Imam (A.S.) and conceives that only the Quran is sufficient for his guidance. The above is a glaring instance of the re-appearence of Imam (A.S.). A day can not be transformed into night by closing one’s eyes. One would be called blind if one denies a existence of moon in the moon lit night. As one who has no faith in Islam and not following its tenet is an infidel. So also the belief in Mahdaviyat can also be judged in that light. It has found mention in Quran and as well as traditions. So disagreement with Mahdaviyat amounts to infedility. The scholars, ulama and writers of all the sects of Islam like Hambali; Shafai; Maleki, Hanafi; Wahabi Ashaira and Mutazela have finally agreed that the faith in Mahdaviyat is one of the essentials of religion and the refusal is at part with infidelity. The above is mentioned in the following books by following authors:
 
 (1) Alburhan fi alamate Mahdi aakheruz zaman by Muttaqie Hindi chap. 13;
 
@@ -111,9 +111,9 @@ It openly declares him as an infidel who disagrees with the re-appearence of Ima
 
 (9) Al Faraydus Simtain by Hamuyi p-3.
 
-Have the founders of different sects of Islam in their authentic religious books adjuded wrongly ? These so called founders and pillars of their sects in their books after indepth study of Quran, Ahadees and History have arrived at this decision. We can only then see the things in their true form by removing the spectacle of bigotry and orthodoxy. Pointing a finger in one’s direction without proof is ignorance.
+Have the founders of different sects of Islam in their authentic religious books adjuded wrongly? These so called founders and pillars of their sects in their books after in-depth study of Quran, Ahadees and History have arrived at this decision. We can only then see the things in their true form by removing the spectacle of bigotry and orthodoxy. Pointing a finger in one’s direction without proof is ignorance.
 
-In the end it can be Concluded as follows :-
+In the end it can be Concluded as follows:-
 
 1. Mahdaviyat is a religions belief. It has found mention both in Quran as well as in Ahadees.
 
@@ -123,7 +123,7 @@ In the end it can be Concluded as follows :-
 
 Then according to Quran “On that day all mankind would be called along with their Imams.”
 
-Beware of that day when you (Muslims) would also be told to come out from the queue and to stand along with infidels. Then those Muslims would ask with wonder, Oh God ! We were all Muslims. Then they would we questioned whether they were knowing the Imam of their time.
+Beware of that day when you (Muslims) would also be told to come out from the queue and to stand along with infidels. Then those Muslims would ask with wonder, Oh God! We were all Muslims. Then they would we questioned whether they were knowing the Imam of their time.
 
 1. Faraedus Simtain page.2
 
@@ -137,7 +137,7 @@ Forty Traditions From Imam Mahdi (A.S.)
 
 2. “I am the one who will fill it (the earth with justice as it would be full of tyranny.” (Bihar V.52, p.2)
 
-3. “I am the remainder of Allah in His earth.” (Bihar, V.52,p 24)
+3. “I am the remainder of Allah in His earth.” (Bihar, V.52, p 24)
 
 4. “I am the avenger from His enemies” (Bihar, V,52 p24)
 
@@ -163,7 +163,7 @@ Forty Traditions From Imam Mahdi (A.S.)
 
 15. “For surely our knowledge encompasses information about you and none of your news is concealed form us.” (Bihar, V.53, p 175)
 
-16. “Surely, we do not neglect your conditions nor are we forgetful of your remembrance.” (Bihar,V.53 p 175).
+16. “Surely, we do not neglect your conditions nor are we forgetful of your remembrance.” (Bihar, V.53 p 175).
 
 17. “Then each one of you should do those deeds which bring you closer to our love.” (Bihar, V.53. p 176).
 
@@ -217,7 +217,7 @@ The 15th of Shabaan is the birhtday of this righteous Imam. It is his birthday w
 
 Awaiting his re-appearance is the best form of worship and one who awaits is like the one who is martyred in the battlefield fighting alongwith the Holy Prophet (S.A.) and praying for the re-appearance is the choicest invocation. At present, this enlightened sun of Imamat is concealed behind the clouds of occultation and benefits the entire world from behind them. In such difficult times, the responsibility of awaiters increases manifould times. It should not be that our continuous negligence towards our responsisbilities and duties becomes the cause for delay in his re-appearance. If, God forbid, it is true, then it is indeed our misfortune.
 
-On this auspicious occassion, let all of us, our men, our women, our children, the lovers of Ale Mohammad (S.A.) renew our oath in the presence of the Almighty God and wail and cry while reciting the following sentence of Doa-e-Ahd after every morning prayers :
+On this auspicious occassion, let all of us, our men, our women, our children, the lovers of Ale Mohammad (S.A.) renew our oath in the presence of the Almighty God and wail and cry while reciting the following sentence of Doa-e-Ahd after every morning prayers:
 
 “O Allah, I renew my covenant through the Imam this morning, and for the time my life continues, as convenant and agreement and promise through him, and as my sacred obligation. I will not avoid it or break it. O Allah, keep me among his friends and companious and defenders, those to arrive quickly at his service and to meet his needs, those who carry out his commands, those who resist opposition to Thee, those who anticipate Thy will and find their opportunity for martyrdom in His behalf.”
 

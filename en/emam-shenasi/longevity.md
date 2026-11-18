@@ -89,7 +89,7 @@ The difference in average ages after a time gap indicates the improvement in pub
 
 In England, during the year 1838-1845, if someone would have declared that men couldn’t live more than 40 years, then surely the researchers of that time would have smiled and replied (1) No average age limit should be fixed which cannot be increased or decreased (2) even if some average age limit was stipulated, it was as per the maximum and minimum limit of that time.
 
-Hence all fixed age limits will be proved wrong after a period of time. All such attempts to fix the age limit will become the object of mockery and ridicule. And this derision is the fate of all those who set a limit for age and forward such baseless ideas. It must be mentioned at this stage that the increase in the average age of man is in itself the best proof that human life cannot be fixed to a pre-determined value. .
+Hence all fixed age limits will be proved wrong after a period of time. All such attempts to fix the age limit will become the object of mockery and ridicule. And this derision is the fate of all those who set a limit for age and forward such baseless ideas. It must be mentioned at this stage that the increase in the average age of man is in itself the best proof that human life cannot be fixed to a pre-determined value..
 
 The incessant researches in biological science have revealed an increasing list of factors that increase the span of life. The scientists are working on ‘proportionate weight of brain’, which may become an effective cause of increasing man’s age and scientists have reached to a conclusion that the life of man can be prolonged upto 350 years in the near future.
 
@@ -153,7 +153,7 @@ Well, the purpose of all these arguments was to prove that the concept of longev
 
 [^7]: Vide the book of Abu Hatim Sajistani ‘Al-Muammarun Wal Wisaya’. Abul Hasan Masoodi’s Murujuz Zahab and Abu Raihan Beruni’s ‘Asarul-Baqiyah.
 
-[^8]: Holy Quran Ankaboot :14
+[^8]: Holy Quran Ankaboot:14
 
 [^9]: Refer to Usool-e-Kaafi, Kitab al-Hujjah.
 

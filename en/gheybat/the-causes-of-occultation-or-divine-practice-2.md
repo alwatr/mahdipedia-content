@@ -39,7 +39,7 @@ I asked: “Why will he go into occultation?”
 
 Imam (a.s.) replied: “For such a reason which is not permitted to be divulged.O Fazl! This occultation is one of the commands of Allah, one of the closely guarded secrets of Allah, it is one of the hidden things with Allah. And when we know that the Almighty is All-Wise and often we have testified that all of His actions are based on wisdom though we may not be aware of the reasons behind His actions.”
 
-(Elalush Sharaye, Vol. 1, pg. 234, tradition. No. 8 )
+(Elalush Sharaye, Vol. 1, pg. 234, tradition. No. 8)
 
 When the occultation of Imam (A.S) is a secret and if the actual reason is known to every­body then how will it remain a secret anymore? If someone insists that he will not admit unless the real cause and wisdom is known to him then it is exactly similar to the situation that someone says that he will not pray unless the real cause behind the number of rakaats in namaz does not become clear to him.
 
@@ -59,7 +59,7 @@ For similar reasons Hazrat Hujjat (a.s.) himself had gone into occultation. Seve
 
 The Turbulent Test The obstacles in the tasks of the prophets (a.s.) and Imams (a.s.) were always those men who apparently were very close but they were devoid of noble characteristics like courage, de­termination, fortitude and valor. These men were more interested in their selfish motives rather than keeping their aims at fore. The inevi­table consequences of such an attitude were that just at the moment of victory they used to desert their leaders and announce the fulfillment of their nasty selfish designs. Such men were there with Hazrat Musa (a.s.) who used to say, “You and your Lord may fight; we shall sit over here.” The Holy Prophet (s.a.w.a.) also had such faithless com­panions who despite repeated emphasis of Quran disobeyed him. The battle of Ohad and the army of Osamah are two glaring examples. Even Hazrat Ali (a.s.) had such companions who converted a certain victory into the impasse of arbitration. Keeping these things in mind, the test has been explained as one of the chief causes of occultation.
 
-As Imam Musa bin Jafar(a.s.) puts it: “For the sake of God, take care of your religion. Be on guard lest someone may make you away from the religion. The occultation is inevitable for Sahebe-Amr…. This is also a trial through which Allah, the Almighty tests His servants.”
+As Imam Musa bin Jafar (a.s.) puts it: “For the sake of God, take care of your religion. Be on guard lest someone may make you away from the religion. The occultation is inevitable for Sahebe-Amr…. This is also a trial through which Allah, the Almighty tests His servants.”
 
 (Mikyalul-Makarim, Vol. l, pg. 126-127)
 
@@ -69,7 +69,7 @@ The Triumph of Truth Hitherto the events took place in more or less the same way
 
 “When our Qaem will reappear then none can overcome him.”
 
-(Elaamul-Wara, pg. 400, Beharul Anwar, Vol. 51,pg. 122, 279)
+(Elaamul-Wara, pg. 400, Beharul Anwar, Vol. 51, pg. 122, 279)
 
 For these things, it is imperative that his helpers and assistants should be so courageous and gal­lant that they are not scared of any falsehood, are not in awe of any ruler, are not affected by the glamour of this world and are needless of all such things which can hinder the aid of truth.
 
@@ -77,7 +77,7 @@ Our Deeds One of the causes of the occultation of Hazrat Imam Mahdi (a.s.) is ou
 
 “Know that this earth will never remain devoid of the proof of Allah. But Allah conceals His proof because of the continu­ous sins, injustice and oppression of His crea­tures.”
 
-(Beharul Anwar, Vol. 51,pg. 112; Mikyahd Makarim, Vol. 1, pg. 132)
+(Beharul Anwar, Vol. 51, pg. 112; Mikyahd Makarim, Vol. 1, pg. 132)
 
 Hazrat Hujjat (a.s.) himself had explained the same thing in his Epistle (Tawqee) which he dispatched to Shaikh Mufid (r.a.) inter alia replying to other questions. He wrote: “If our partisans (May Allah help them in His obedience) would have fulfilled their covenant with united hearts then there would have been no delay in our meeting and they would have been blessed with our visitation at the earliest along with the recog­nition of truth and confirmation of our rights. Those things which have increased the distance between them and us are those detestable reports (about their deeds) which are not expected of them. And Allah is the best helper.”
 
@@ -133,15 +133,15 @@ When the condition is such then we must always think while acting that our Imam 
 
 The Fortunate Ones Finally let us cast a glance on this aspect too before we conclude. It is not that Hazrat Hujjat (a.s.) is all alone and absolutely forlorn in this gloomy era of Ghaibat-e-Kubra. Although precise details are not known about such matters but whatever has been mentioned in the tradi­tions is as follows:
 
-Imam Zainul Abedeen (a.s.) said: “None will know about his whereabouts, neither a Wali (friend of God) nor any commoner… .but that person who serves him and carries out his orders.”
+Imam Zainul Abedeen (a.s.) said: “None will know about his whereabouts, neither a Wali (friend of God) nor any commoner….but that person who serves him and carries out his orders.”
 
 (Behar Vol. 52, pg. 753, Ibid 53/324)
 
-Imam Mohammad Baqir (a.s.) said : “…. There is a house of Saheb-e-Amr, which is named as’ Baitul Hamd’. A lamp is lit since his birth and will remain so up till his reappear­ance.”
+Imam Mohammad Baqir (a.s.) said: “…. There is a house of Saheb-e-Amr, which is named as’ Baitul Hamd’. A lamp is lit since his birth and will remain so up till his reappear­ance.”
 
 (Ghaibat-e-Sughra, Tusi, pg. 280, Behar Vol. 52, pg. 158, Yaumul Khalaas, pg. 140)
 
-Imam Jafar Sadiq (a.s.) said : “….There are two occultation for our Qaem, one of them is brief while the other would be prolonged. In the former occultation, his whereabouts will be known to his especially privileged Shias. While in the latter occultation only they will know his place who are his best of friends and servants in reli­gion.”
+Imam Jafar Sadiq (a.s.) said: “….There are two occultation for our Qaem, one of them is brief while the other would be prolonged. In the former occultation, his whereabouts will be known to his especially privileged Shias. While in the latter occultation only they will know his place who are his best of friends and servants in reli­gion.”
 
 (Kafi, Vol. l, pg.340, Ihaamnn Nasib, pg. 81, Behar, Vol. 52, pg. 155)
 

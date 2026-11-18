@@ -12,7 +12,7 @@ tags:
   - 'Awaiting'
   - 'AWAITING FOR IMAM A.S.OR FOR SYMPTOMS AND SIGNS:'
   - 'Few Signs Of The Arrival Of Imam Mehdi (as)'
-  - 'Mahdi (A.J) in Sunnies Rated : 9 (out of 10) 1 users'
+  - 'Mahdi (A.J) in Sunnies Rated: 9 (out of 10) 1 users'
   - 'The Promised Mahdi (as)'
 date: '2013-06-03'
 updated: '2013-06-03'
@@ -23,7 +23,7 @@ review: true
 
 The dark of night will not be deemed necessary for the commitment of sins.
 
-Extravagant mansions will be constructed.Singers will be considered respectable.War shall be prevalent .
+Extravagant mansions will be constructed.Singers will be considered respectable.War shall be prevalent.
 
 Gambling will be prevalent.People will fear living in their own houses. Dajjal shall come and shall have one eye Land shall be turned into deserts Earthquakes and Volcano’s and other natural disasters shall be common. Good deeds will be few and far between. False guides will mislead the multitudes. Posts will be many, but practical teachers a few. Mosques will be decorated profusely but urge towards adoration will be absent. The rate of accidental deaths will be on the rise. The rich will become godless and the devout will become sinful. Leaders of opinion will be corrupt and overbearing. False witnesses will be accepted and true ones rejected The Quran will be considered as an old ancient book A person spending money on sinful purposes will not be criticised. People will thrust their personal opinions in the religion. Usury (Interest) will be considered lawful. The virtuous will be despised for their faith in God. Human beings will be followers of selfish desires. Pride will be taken for oppressive tendencies.
 

@@ -63,7 +63,7 @@ Ibn Hisham recorded that: Ali Ibn Abi Talib was the first male to believe in the
 
 Sunni reference: Biography of the Prophet, by Ibn Hisham, v1, p245
 
-The famous Sunni Historian, al-Tabari also wrote: The first three to offer prayers were Muhammad (PBUH&HF) , Khadija and Ali (AS).
+The famous Sunni Historian, al-Tabari also wrote: The first three to offer prayers were Muhammad (PBUH&HF), Khadija and Ali (AS).
 
 Sunni reference: History al-Tabari, v2, p65
 

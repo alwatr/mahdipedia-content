@@ -63,7 +63,7 @@ Hence subsequent to Divine consent, whenever Hazrat Imam-e-Zamana (a.t.f.s.) wil
 
 The levels of meeting Spiritual meeting:
 
-Spiritually we should develop such a bond with Hazrat Imam-e-Zamana (a.t.f.s.) that we should feel his presence in front of us. The sentiment should be similar to our distant Ziyarat of Hazrat Imam Husain (a.s.), which we recite with complete recognition .When we recite the Ziyarat we feel as if we are present in front of Imam Husain (a.s.) and are talking to him (a.s.). If such emotions are provoked, the feelings become intense and tears start trickling down the eyes.
+Spiritually we should develop such a bond with Hazrat Imam-e-Zamana (a.t.f.s.) that we should feel his presence in front of us. The sentiment should be similar to our distant Ziyarat of Hazrat Imam Husain (a.s.), which we recite with complete recognition.When we recite the Ziyarat we feel as if we are present in front of Imam Husain (a.s.) and are talking to him (a.s.). If such emotions are provoked, the feelings become intense and tears start trickling down the eyes.
 
 When a person says from the depth of his heart, Assalamo Alaika Ya Sahebaz Zamaan (a.s.), he develops a spiritual bond with him. However, it is imperative that the ziyarat and salam should be said with utmost attention and feelings and not out of habit and indifference. This had been eloquently explained in Dua Nudba thus:
 
@@ -89,9 +89,9 @@ Imam (a.s.) is Alive Innumerable anecdotes of meeting with Imam-e-Zamana (a.t.f.
 
 Imam-e-Zamana (a.t.f.s.) is alive
 
-Imam(a.s.) is living on this very earth
+Imam (a.s.) is living on this very earth
 
-Imam(a.s.) solves the problems of the people
+Imam (a.s.) solves the problems of the people
 
 We should turn towards him in times of crisis
 

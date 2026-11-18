@@ -93,11 +93,11 @@ Gold is purified by being heated and treated in fire. Similarly, one of the mean
 
 Hence if the word ‘Fitna’ is interpreted in this sense, then the traditions that speak about it would mean that in the last era, such kinds of talk shall be prevalent due to which people will deviate from the true and correct path
 
-(c) Killing and bloodshed : Allah the Almighty says ‘If you fear that those who have become polytheist shall kill you ‘
+(c) Killing and bloodshed: Allah the Almighty says ‘If you fear that those who have become polytheist shall kill you ‘
 
 (Surah Nisa (4): 101)
 
-The present scenario of the world bears testimony to this fact that all around, terror has been unleashed and everywhere there is violence, killings and bloodshed. Thus, if we look closely, then all the meanings of ‘fitna’ ( dir=LTR>) are relevant in these daunting times. In the last era, not only are people getting deviated from the true religion, and are frustrated with it, but even safety and security have vanished for the practitioners of true religion. Killing and looting has become widespread. Thus remaining steadfast on the true religion is a severe test in this era.
+The present scenario of the world bears testimony to this fact that all around, terror has been unleashed and everywhere there is violence, killings and bloodshed. Thus, if we look closely, then all the meanings of ‘fitna’ (dir=LTR>) are relevant in these daunting times. In the last era, not only are people getting deviated from the true religion, and are frustrated with it, but even safety and security have vanished for the practitioners of true religion. Killing and looting has become widespread. Thus remaining steadfast on the true religion is a severe test in this era.
 
 3. Difficulties and Calamities:
 

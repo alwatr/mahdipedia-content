@@ -9,7 +9,7 @@ tags:
   - 'AL Mahdi In Quran'
   - 'AL Mahdi In Sunni'
   - 'BIRTH OF IMAM MAHDI (A.S.) IN AHLE SUNNA'
-  - 'Mahdi (A.J) in Sunnies Rated : 9 (out of 10) 1 users'
+  - 'Mahdi (A.J) in Sunnies Rated: 9 (out of 10) 1 users'
   - 'The Promised Mahdi (as)'
 date: '2013-06-03'
 updated: '2013-06-03'
@@ -34,7 +34,7 @@ Hence, Shias without entertaining a slightest doubt believe that Imam al Mahdi (
 
 IT IS NOT AT ALL SURPRISING THAT A FEW OF GREAT UNBIASED AHLE SUNNAH SCHOLARS, HEARING THE CALL OF THEIR CONSCIENCE, TRYING TO PROTECT THE TRUST OF HISTORY HAVE MENTIONED IN THEIR BOOKS IMAM AL MAHDI (A.S.) IS ALREADY BORN TO IMAM HASAN ASKARI (A.S.). The writings of these Ahle Sunnat Scholars are centered around this quotation, “Abul Qasim Mohammad bin Askari was born in Samarrah in the year 255A.H. or some other year. He is the same Mahdi Mawood who is mentioned in reliable and correct Ahle Sunnat traditions and there is not at all any possibility that he may be some other person”.
 
-THE AHLE SUNNAT SCHOLARS WHO BELIEVE ON THE BIRTH OF IMAM AL MAHDI :
+THE AHLE SUNNAT SCHOLARS WHO BELIEVE ON THE BIRTH OF IMAM AL MAHDI:
 
 Late Shaikh Najmudden al Askari in the first chapter of his book ‘Al Mahdi al Mawood al Muntazar’ have mentioned the names of forty Ahle Sunnat Scholars who accepted the birth of Imam al Mahdi (a.s.) Similarly the contemporary scholar Shaikh Lutfullah Safi in his book Muntakabul Asar has mentioned the names of 26 Ahle sunnat Scholars who are of the opinion that Imam al Mahdi is already born. Here we are quoting 20 narrations for brevity. Those who are interested in more references they may please refer to following books and also other books written on this topic.
 
@@ -50,7 +50,7 @@ And he also says, “Al Mahdi, he is the son of Hasan Askari and he was born in 
 
 5. Ahmed bin Hajar Al-Makki in his book Sawaiq-al-Mohreqah page 127, while discussing about Imam Hasan-e-Askari says, “Other than Abul Qasim Mohammed-al-Hujjat he did not have any successor. And his age at the death of his father was five years and Allah gave him wisdom”——THE END—
 
-References :
+References:
 
 AUTHOR
 

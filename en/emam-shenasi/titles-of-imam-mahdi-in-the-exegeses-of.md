@@ -200,7 +200,7 @@ Explanation:
 
 Imam Muhammad Baqir (a.s.) while explaining this verse said:
 
-“The Oppressed in this verse refers to Imam Husain ibne Ali (a.s.) who was killed unjustly and we are his Inheritors and the Qaem (a.s.) is from us. When he reappears he shall avenge the blood of Imam Husain (a.s.). In this verse ?Maqtool? refers to Imam Husain (a.s.) and his ?Wali? refers to Hazrat Qaem (a.s.) and ?Israaf? means killing the one who did not participate in killing you”. ‘Surely they will be helped’ means this world will not end unless a person from the progeny of the Holy Prophet (s.a.w.a.) is helped so that he fills the earth with justice and equity just as it was filled with oppression and tyranny.”
+“The Oppressed in this verse refers to Imam Husain ibne Ali (a.s.) who was killed unjustly and we are his Inheritors and the Qaem (a.s.) is from us. When he reappears he shall avenge the blood of Imam Husain (a.s.). In this verse?Maqtool? refers to Imam Husain (a.s.) and his?Wali? refers to Hazrat Qaem (a.s.) and?Israaf? means killing the one who did not participate in killing you”. ‘Surely they will be helped’ means this world will not end unless a person from the progeny of the Holy Prophet (s.a.w.a.) is helped so that he fills the earth with justice and equity just as it was filled with oppression and tyranny.”
 
 (Al Ayaashi, Vol. 2, Pg. 290; Al Muhajjah, Pg. 128; Al Burhaan, Vol. 2, Pg. 419; Tafseer-e-Noorus Saqalain, Vol. 3, Pg. 163)
 
@@ -226,7 +226,7 @@ Explanation:
 
 Imam Sadiq (a.s.) says:
 
-“This verse is revealed about the Qaem(a.s.) from the progeny of the Holy Prophet Muhammad (s.a.w.a.). By Allah he is the distressed one. He will offer two units (rakat) of prayers near Maqame Ibrahim and pray to Allah. Allah will answer his prayers and remove his difficulties and shall make him the Caliph on the earth.”
+“This verse is revealed about the Qaem (a.s.) from the progeny of the Holy Prophet Muhammad (s.a.w.a.). By Allah he is the distressed one. He will offer two units (rakat) of prayers near Maqame Ibrahim and pray to Allah. Allah will answer his prayers and remove his difficulties and shall make him the Caliph on the earth.”
 
 (Al Saafi, Vol. 4, Pg. 81; Isbatul Hudaat, Vol. 3, Pg. 553; Tafseer Al Burhaan, Vol. 3, Pg. 208; Tafseer-e-Noorus Saqalain, Vol. 4, Pg. 94)
 

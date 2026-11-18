@@ -37,7 +37,7 @@ If only I had known where you are (living) Which is that fortunate piece of land
 
 O my sons Go and inquire respecting Yusuf and his brother, and despair not of Allahs mercy; surely none despairs Allahs mercy except the unbelieving people.
 
-(Surah Yusuf : 87)
+(Surah Yusuf: 87)
 
 Indeed the love of the father (Yaqoob (a.s.)) for his son (Yusuf (a.s.)) was very intense, and this intensity can be gauged by one amazing fact – When Yaqoob (a.s.) finally came to Egypt, the distance between Yusuf (a.s.) and him was of 19 days (journey). But the attachment and love of the father diminished even this vast distance to such an extent, that when Yusuf (a.s.) removed his cloak, Yaqoob (a.s.) commented, ‘I can sense Yusuf’s fragrance’
 
@@ -45,13 +45,13 @@ When Imam Mahdi (a.t.f.s.) reappears he shall get along with him this very cloak
 
 ‘They said: Are you indeed Yusuf He said: I am Yusuf and this is my brother; Allah has indeed been gracious to us; surely he who guards (against evil) and is patient (is rewarded) for surely Allah does not waste the reward of those who do good.’ ‘They said: By Allah Now has Allah certainly chosen you over us and we were certainly sinners.’ ‘He said: (There shall be) no reproof against you this day; Allah may forgive you, and He is the most Merciful of the merciful.”
 
-(Surah Yusuf : 90-92)
+(Surah Yusuf: 90-92)
 
 Dear readers, today Imam Mahdi (a.t.f.s.) is the Yusuf of Janabe Zahra (s.a.). Our sins have separated him from us. Therefore, we should rectify our actions and refrain from all those things that become the cause of Imams (a.s.) grief and sorrow. Come let us confess to our Imam (a.t.f.s.), as Yusufs (a.s.) brothers have confessed to him:
 
 O Chief Distress has afflicted us and our family and we have brought scanty money so give us full measure and be charitable to us; surely Allah rewards the charitable.
 
-(Surah Yusuf : 88)
+(Surah Yusuf: 88)
 
 O Imam Surely our most prized possession is your love that we have in our hearts, although it is very little O Imam of the age Surely we have committed serious transgressions and our disobedience is abundant, while our obedience is negligible
 

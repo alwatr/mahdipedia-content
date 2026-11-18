@@ -37,9 +37,9 @@ With regard to this verse Abu Baseer quotes Imam Sadeq (A.S.) as saying that thi
 
 The conclusion which can be derived from the above verse is that
 
-Firstly : Universal IslamicGovernment will beEstablished:
+Firstly: Universal IslamicGovernment will beEstablished:
 
-From the clear-cut promises of the Holy Quran and authentic traditions of Masoomeen (A.S.) it is well known that at the time of reaperance of Hujjat of Allah all the Governments of the world will collapse, there will not remain any regime on earth and the whole world will be changed to one country, one people, one Governent, one slogan, one flag and one constitution. And that Government is the right of Hazrat Baqiyattullah with the Flag of”with the slogan of Establishing a Unversal Islamic Government is one of the characteristics of Qiyam of Mahdi (A.S.) Imam Baqer (A.S.) said :
+From the clear-cut promises of the Holy Quran and authentic traditions of Masoomeen (A.S.) it is well known that at the time of reaperance of Hujjat of Allah all the Governments of the world will collapse, there will not remain any regime on earth and the whole world will be changed to one country, one people, one Governent, one slogan, one flag and one constitution. And that Government is the right of Hazrat Baqiyattullah with the Flag of”with the slogan of Establishing a Unversal Islamic Government is one of the characteristics of Qiyam of Mahdi (A.S.) Imam Baqer (A.S.) said:
 
 “When the Qaem will do Qiyam, the false Governments will be destroyed.”
 
@@ -47,7 +47,7 @@ In another tradition he says,
 
 “His Government will spread to East and West.
 
-Again Imam Baqer (A.S.) in interpreting this verse has said :
+Again Imam Baqer (A.S.) in interpreting this verse has said:
 
 “Those who should We establish them in the land, will keep up prayer and pay the poor-rate and enjoin good and forbid evil; and Allah’s is the end of affairs.”
 
@@ -57,7 +57,7 @@ Allah will make him and his followers dominant on the earth from East to West an
 
 They will invite the people towards piety and forbid them from the evils and to Allah belongs the end of affairs.”
 
-Secondly : Islam will become The Universal religion:
+Secondly: Islam will become The Universal religion:
 
 Amongst the various aims, the main aim of the Government of Hazrat Baqiyatullah is to put an end to atheism and polythesim and uplift the school of Tauheed.
 
@@ -69,7 +69,7 @@ In this verse which has been exactly repeated in three different chapters (Sura 
 
 victory of the true religion over all the false religion of the world has been introduced.
 
-With regard to this verse Ali (A.S.) has said : “Has this verse been fulfilled ? No never, In fact there should remain no house on the earth except that house from which the cry of “There is no God but Allah”
+With regard to this verse Ali (A.S.) has said: “Has this verse been fulfilled? No never, In fact there should remain no house on the earth except that house from which the cry of “There is no God but Allah”
 
 Imam Sadeq (A.S.) too interpreting this verse says:
 
@@ -79,19 +79,19 @@ When the Qaem will rise no disbelievers in Allah and polytheist in Imamat of Ima
 
 Thus we see that the promise of Allah that the true religion of Islam will previal over all the religions will be fulfilled in the near future by the hands of Hazrat Vali-Asr (A.S.).
 
-Again the 6th Imam while interpreting the above verse said :
+Again the 6th Imam while interpreting the above verse said:
 
-‘O Muffazal ! By Allah all the religions will be destroyed, there will no longer remain any difference in opinions and views and Islam will prevail as Allah Taala said :
+‘O Muffazal! By Allah all the religions will be destroyed, there will no longer remain any difference in opinions and views and Islam will prevail as Allah Taala said:
 
 (AL-Mohajjah Page 227)
 
-The Holy Prophet (S.A.W.) too has said :
+The Holy Prophet (S.A.W.) too has said:
 
 “There will remain no part of the Earth where the Islamic slogan will not be heard.”
 
-(Ref. : Muntakhab-ul-Athar, 293/3).
+(Ref.: Muntakhab-ul-Athar, 293/3).
 
-Thirdly : Another important aim of the Government of Hazrat Baqiyatallah (A.S.) will be to put an end to injustice and oppression and to spread social justice in every corner of the world.:
+Thirdly: Another important aim of the Government of Hazrat Baqiyatallah (A.S.) will be to put an end to injustice and oppression and to spread social justice in every corner of the world.:
 
 From the view-point of Quran one of the aims of sending the prophets is the setting up of social justice amongst the human-being.
 
@@ -99,13 +99,13 @@ From the view-point of Quran one of the aims of sending the prophets is the sett
 
 (Sura Hadeed; Ayat 25)
 
-This verse speaks about the aim of sending the Prophets and the Book and the balance as establishing justice on the earth. But has Justice been established over the earth till today ? The Holy Prophet and the Infallible Imams in hundreds of traditions have declared the day of its fulfillment on the day of advent of Hazrat Baqiyatullah (A.S.).
+This verse speaks about the aim of sending the Prophets and the Book and the balance as establishing justice on the earth. But has Justice been established over the earth till today? The Holy Prophet and the Infallible Imams in hundreds of traditions have declared the day of its fulfillment on the day of advent of Hazrat Baqiyatullah (A.S.).
 
-In one traditions with regard to the advent of Hazrat Mahdi (A.S.) has been said by one of Masoomeen (A.S.) :
+In one traditions with regard to the advent of Hazrat Mahdi (A.S.) has been said by one of Masoomeen (A.S.):
 
 “He will clean the Earth from every oppression and injustice.
 
-” (Ref. : “Kamaluddin Pg. 336)
+” (Ref.: “Kamaluddin Pg. 336)
 
 At that time when the world will be full of Justice many after-effects will be manifested such as
 
@@ -117,7 +117,7 @@ However during the time of Hazrat Baqiyatullah wealth will be equally distribute
 
 “When Our Qaem of Ahle Bait will reappear, he will distribute wealth equally and will establish Justice amongst the people.”
 
-(B) Free From want :
+(B) Free From want:
 
 Under the auspices Universal Government of Hazrat Baqiyatullah (A.S.) every one will be free from want and no one will be found on this earth who will accept charity and Zakat from a person.
 
@@ -125,11 +125,11 @@ Under the auspices Universal Government of Hazrat Baqiyatullah (A.S.) every one 
 
 Ref. Sahih Bukhari Vol 2 Pg. 136.
 
-(C) Universal Security :
+(C) Universal Security:
 
 During the glorious days of Hazrat Mahdi (A.S.) the right of every owner will be given to him; everyone will enjoy from the unlimited bounties of Allah; there will remain no reason for jealousy, grudge and hatred and finally peace and tranquility will engulf the whole world.
 
-Imam (A.S.) Says :
+Imam (A.S.) Says:
 
 “Hatred will be wiped off from the hearts of all creatures, the wild and ferocious animals will live inpeace together with other quadruped animals together in harmony; a woman with a tray on her head will travel alone from Iraq to Syria; every place will be refreshing and greeny and no animal will give trouble to her and she will not fear and panic.”
 
